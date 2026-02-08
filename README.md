@@ -28,7 +28,7 @@
 | **1** | Mon 2/9 | Arrival & Settle | Costco run, explore resort, **weather-dependent dinner** |
 | **2** | Tue 2/10 | Weather Backup | Flexible indoor/covered activities, postpone surf lesson |
 | **3** | Wed 2/11 | **Surf Lesson** + South Maui | Learn to surf (moved from Day 2), Kamaole Beach, Monkeypod Kitchen |
-| **4** | Thu 2/12 | Atlantis Submarine ⭐ + 'Iao Valley | Dive to 100 ft, explore sacred Hawaiian valley, Pa'ia |
+| **4** | Thu 2/12 | Atlantis Submarine ⭐ + 'Iao Valley ⭐ | Dive to 100 ft, The Fish Market lunch, sacred valley, Pa'ia |
 | **5** | Fri 2/13 | Road to Hana | 620 curves, waterfalls, black sand beach, lava tube caves |
 | **6** | Sat 2/14 | Haleakala Sunrise + Whale Day | 3 AM wake-up, 10,023 ft summit, marine science festival |
 | **7** | Sun 2/15 | Kapalua + Luau ⭐ | Snorkeling, World Whale Day Parade, Old Lahaina Luau |

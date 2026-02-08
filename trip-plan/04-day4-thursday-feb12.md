@@ -1,6 +1,6 @@
-# Day 4 — Thursday, February 12: Atlantis Submarine + Pa'ia Town
+# Day 4 — Thursday, February 12: Atlantis Submarine + 'Iao Valley
 
-**Theme:** Underwater adventure (SPLURGE #1) + charming North Shore surf town
+**Theme:** Underwater adventure (SPLURGE #1) + Sacred Hawaiian valley + Pa'ia Town
 
 ---
 
@@ -49,26 +49,73 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 
 ---
 
-### Midday: Lunch at Cool Cat Express
+### Midday: Lunch at The Fish Market Maui ⭐
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 12:15 PM | **Cool Cat Express** | Whaler's Village, Ka'anapali |
+| 12:15 PM | **The Fish Market Maui** | 3600 Lower Honoapiilani Rd, Lahaina (10 min from harbor) |
 
-- **Vibe:** Classic American diner. Fun, colorful, casual.
-- **Why:** Award-winning burgers, hot dogs, chicken sandwiches. Root beer floats and milkshakes. Pure kid-pleaser.
-- **Price:** $ (~$25-40 for a family of 3)
-- **No reservation needed**
+⭐ **Friend's Recommendation!**
+
+- **Vibe:** Casual, local favorite, fresh seafood market with prepared food
+- **Why:** Fresh-caught fish daily, poke bowls, fish tacos, plate lunches. Your friend Natallia recommended this!
+- **For the kid:** Fish and chips, fish tacos, grilled fish plates
+- **Don't miss:** The fresh poke bowls (multiple varieties), fish tacos, daily catch specials
+- **Price:** $$ (~$45-55 for a family of 3)
+- **No reservation needed** — order at counter, casual seating
 
 ---
 
-### Afternoon: Pool Time + Pa'ia Town
+### Afternoon: 'Iao Valley State Park ⭐
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 1:00-2:30 PM | **Eldorado pool time** | Relax after the morning adventure. Try the Turtle Pool or Dolphin Pool. |
-| 3:00 PM | **Drive to Pa'ia** | ~40 min via Highway 30 → Highway 36 through Kahului |
-| 3:45-5:30 PM | **Explore Pa'ia town** | Charming North Shore surf town |
+| 1:30 PM | **Drive to 'Iao Valley State Park** | ~30 min from Lahaina via Highway 30 → Wailuku |
+| 2:00-3:30 PM | **Explore 'Iao Valley** | See details below |
+
+⭐ **Friend's "MUST VISIT" Recommendation!**
+
+**'Iao Valley State Park — What to Expect:**
+
+One of Maui's most sacred and historically significant locations. A lush, mystical valley in the West Maui Mountains.
+
+**The highlight: 'Iao Needle**
+- A dramatic 1,200-foot volcanic rock spire rising from the valley floor
+- Sacred Hawaiian site — ancient burial ground and site of the 1790 Battle of Kepaniwai
+- Covered in dense green vegetation
+- Often shrouded in mist and clouds
+
+**What to do:**
+- **'Iao Valley Lookout Trail** — Easy 0.6-mile paved loop trail
+- Multiple viewing platforms for the 'Iao Needle
+- Interpretive signs about Hawaiian history and geology
+- Stream below with stepping stones (kids can wade if it's not too high)
+- **Kepaniwai Heritage Gardens** — Small botanical garden celebrating different ethnic groups in Hawaii (Japanese, Chinese, Portuguese, Filipino gardens)
+
+**Key details:**
+- **Entry fee:** $10/vehicle + $5/person (Hawaii residents free)
+- **Hours:** 7:00 AM - 7:00 PM daily
+- **Time needed:** 1-1.5 hours
+- **Difficulty:** Easy paved trail, suitable for all ages
+- **Best time:** Morning (less crowded) or mid-afternoon (like your timing)
+- **Weather:** Can be rainy and muddy — it's a rainforest valley. Bring light rain jacket just in case.
+- **Parking:** Small lot, can fill up midday. Arrive early or late afternoon for easier parking.
+
+**Why it's special:**
+- One of Maui's most iconic landscapes
+- Deep Hawaiian cultural and historical significance
+- The valley's name translates to "cloud supreme" — often mystically shrouded
+- Educational and beautiful
+- Easy for families with kids
+
+---
+
+### Late Afternoon: Pa'ia Town
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 4:00 PM | **Drive to Pa'ia** | ~40 min via Highway 36 through Kahului |
+| 4:45-6:00 PM | **Explore Pa'ia town** | Charming North Shore surf town |
 
 **Pa'ia Town highlights:**
 - Small, walkable downtown with surf shops, boutiques, art galleries
@@ -113,9 +160,12 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 
 ## Practical Notes
 
+- **'Iao Valley weather:** It's a rainforest valley — expect occasional rain. Bring light rain jacket and wear shoes with good traction (can be slippery when wet).
+- **'Iao Valley parking:** Small lot. If full, there's overflow parking at the nearby baseball field (short walk).
 - **Pa'ia parking:** Can be tight on the main street. There's a free public lot behind the shops. If full, there's more parking along Baldwin Avenue.
-- **Timing Pa'ia:** Going in the afternoon is smart — morning Pa'ia is crowded with Road to Hana traffic. By 3-4 PM, it's mellowed out.
+- **Timing Pa'ia:** Going in the late afternoon is smart — morning Pa'ia is crowded with Road to Hana traffic. By 4-5 PM, it's mellowed out.
 - **Gas tip:** Fill up in Kahului on the way to Pa'ia if needed. Pa'ia has limited gas stations.
+- **This is a FULL day:** Submarine in morning, 'Iao Valley midday, Pa'ia evening. You'll cover a lot of ground. If you're tired, consider skipping Pa'ia and heading back to the condo after 'Iao Valley.
 
 ---
 
@@ -125,8 +175,11 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 |------|------|
 | Breakfast & snacks | $0 (condo supplies) |
 | Atlantis Submarine (2 adults + 1 child) | ~$438 |
-| Cool Cat Express lunch | $25-40 |
+| The Fish Market lunch | $45-55 |
+| 'Iao Valley entry | $25 ($10 vehicle + $15 for 3 people) |
 | Tobi's Poke | $15-25 |
 | Flatbread Company dinner | $40-60 |
-| Gas | $10-15 |
-| **Day total** | **$528-578** |
+| Gas | $15-20 |
+| **Day total** | **$578-623** |
+
+**Note:** This is your most expensive day due to the Atlantis Submarine splurge, but it's packed with incredible experiences!
