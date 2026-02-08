@@ -119,16 +119,16 @@ Roadside viewpoint on Road to Hana. Quick photo stop.
 
 ## 📄 Detailed Daily Itineraries
 
-- **[Overview & Practical Info](00-overview.md)** — Weather, packing list, car rental, beaches, Lahaina status
-- **[Day 1 — Mon 2/9: Arrival](01-day1-monday-feb9.md)** — 11 AM arrival, Costco run, weather-flexible evening
-- **[Day 2 — Tue 2/10: Weather Backup](02-day2-tuesday-feb10.md)** — Indoor/covered activities, postpone surf lesson
-- **[Day 3 — Wed 2/11: Surf Lesson + South Maui](03-day3-wednesday-feb11.md)** — Learn to surf, Coconuts Fish Café, Monkeypod Kitchen
-- **[Day 4 — Thu 2/12: Submarine + 'Iao Valley](04-day4-thursday-feb12.md)** — Atlantis dive, sacred valley, Pa'ia
-- **[Day 5 — Fri 2/13: Road to Hana](05-day5-friday-feb13.md)** — Waterfalls, black sand beach, lava tubes, banana bread
-- **[Day 6 — Sat 2/14: Haleakala + Whale Day](06-day6-saturday-feb14.md)** — 3 AM sunrise, 10,023 ft summit, marine festival
-- **[Day 7 — Sun 2/15: Kapalua + Luau](07-day7-sunday-feb15.md)** — Snorkeling, parade, Old Lahaina Luau
-- **[Day 8 — Mon 2/16: Departure](08-day8-monday-feb16.md)** — The Gazebo, final beach time, fly home
-- **[Reservations Checklist](09-reservations-checklist.md)** — Complete booking timeline with links
+- **[Overview & Practical Info](trip-plan/00-overview.md)** — Weather, packing list, car rental, beaches, Lahaina status
+- **[Day 1 — Mon 2/9: Arrival](trip-plan/01-day1-monday-feb9.md)** — 11 AM arrival, Costco run, weather-flexible evening
+- **[Day 2 — Tue 2/10: Weather Backup](trip-plan/02-day2-tuesday-feb10.md)** — Indoor/covered activities, postpone surf lesson
+- **[Day 3 — Wed 2/11: Surf Lesson + South Maui](trip-plan/03-day3-wednesday-feb11.md)** — Learn to surf, Coconuts Fish Café, Monkeypod Kitchen
+- **[Day 4 — Thu 2/12: Submarine + 'Iao Valley](trip-plan/04-day4-thursday-feb12.md)** — Atlantis dive, sacred valley, Pa'ia
+- **[Day 5 — Fri 2/13: Road to Hana](trip-plan/05-day5-friday-feb13.md)** — Waterfalls, black sand beach, lava tubes, banana bread
+- **[Day 6 — Sat 2/14: Haleakala + Whale Day](trip-plan/06-day6-saturday-feb14.md)** — 3 AM sunrise, 10,023 ft summit, marine festival
+- **[Day 7 — Sun 2/15: Kapalua + Luau](trip-plan/07-day7-sunday-feb15.md)** — Snorkeling, parade, Old Lahaina Luau
+- **[Day 8 — Mon 2/16: Departure](trip-plan/08-day8-monday-feb16.md)** — The Gazebo, final beach time, fly home
+- **[Reservations Checklist](trip-plan/09-reservations-checklist.md)** — Complete booking timeline with links
 
 ---
 
@@ -214,7 +214,7 @@ Roadside viewpoint on Road to Hana. Quick photo stop.
 
 This itinerary balances relaxation, adventure, culture, and family fun. The full kitchen at the Eldorado will save you hundreds in dining costs. Remember: February 9-10 have unusual weather, but Days 3-7 will be spectacular!
 
-**Questions?** Refer to the detailed daily plans linked above or the [overview file](00-overview.md) for comprehensive packing lists, drive times, and practical tips.
+**Questions?** Refer to the detailed daily plans linked above or the [overview file](trip-plan/00-overview.md) for comprehensive packing lists, drive times, and practical tips.
 
 ---
 
