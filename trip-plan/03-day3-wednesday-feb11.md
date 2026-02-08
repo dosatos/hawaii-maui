@@ -7,9 +7,9 @@
 ## ✅ GREAT WEATHER TODAY!
 
 **Forecast:**
-- High: 78°F
+- High: 26°C
 - Isolated showers (only 20% chance)
-- Winds: ENE 20 mph, gusts to 28 mph
+- Winds: ENE 32 km/h, gusts to 45 km/h
 - **Perfect conditions for beginner surfing!**
 
 **🏄 SURF LESSON MOVED TO TODAY** (from Day 2 due to storm)

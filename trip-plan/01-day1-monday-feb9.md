@@ -10,8 +10,8 @@
 - **Flood Watch** through 6:00 PM HST
 - **High Wind Warning** through 6:00 PM HST
 - Heavy rain + thunderstorms (90% chance)
-- Winds 25-29 mph with **gusts to 60 mph**
-- High: 73°F, Low: 67°F
+- Winds 40-47 km/h with **gusts to 97 km/h**
+- High: 23°C, Low: 19°C
 
 **Impact:** Outdoor activities (beach walks, sunset viewing) may not be possible. Stay flexible!
 

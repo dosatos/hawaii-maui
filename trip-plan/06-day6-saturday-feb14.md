@@ -20,7 +20,7 @@
 **Haleakala National Park:**
 - **Drive time:** Ka'anapali → Kahului → Highway 37 → Highway 377 → Highway 378 (Crater Road) → Summit. About 2 hours, 42 miles.
 - **Elevation gain:** Sea level to 10,023 feet
-- **Temperature at summit:** 30-40°F (sometimes lower with wind chill). Feels like winter.
+- **Temperature at summit:** -1 to 4°C (sometimes lower with wind chill). Feels like winter.
 - **Sunrise time in mid-February:** ~6:50 AM
 - **Arrive by:** 6:00-6:15 AM to get parking and find a good viewing spot
 
@@ -179,7 +179,7 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 ## What to Pack for Day 6
 
 ### Haleakala Summit (3-8 AM)
-**Dress in WARM LAYERS — it's 30-40°F:**
+**Dress in WARM LAYERS — it's -1 to 4°C:**
 - Fleece or puffy jacket
 - Long pants (jeans or hiking pants)
 - Closed-toe shoes
@@ -190,7 +190,7 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 - Thermos with hot coffee/cocoa
 
 ### For later in the day
-- Change into shorts/t-shirts (it'll be 78°F at sea level)
+- Change into shorts/t-shirts (it'll be 26°C at sea level)
 - Sunscreen
 - Sunglasses
 - Camera

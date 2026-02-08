@@ -21,14 +21,14 @@
 
 | Condition | Details |
 |-----------|---------|
-| Daytime highs | 78-83°F (26-28°C) |
-| Nighttime lows | 63-68°F (17-20°C) |
-| Water temperature | 75-77°F (24-25°C) — comfortable without wetsuit |
+| Daytime highs | 26-28°C (comfortable shorts & t-shirt weather) |
+| Nighttime lows | 17-20°C (light sweater may be nice) |
+| Water temperature | 24-25°C — comfortable without wetsuit |
 | Rain | Occasional brief showers; Ka'anapali is one of the driest areas |
-| Wind | Trade winds 10-20 mph, calmer mornings, windier afternoons |
+| Wind | Trade winds 16-32 km/h, calmer mornings, windier afternoons |
 | Sunrise | ~6:50 AM |
 | Sunset | ~6:20 PM |
-| Haleakala summit | 30-40°F with wind chill! Bring winter layers. |
+| Haleakala summit | -1 to 4°C with wind chill! Bring winter layers. |
 
 **February is PEAK whale season!** Humpback whales migrate to Maui's warm waters November-April, with the highest concentration in January-March. You will likely see whales breaching right from Ka'anapali Beach — no boat needed.
 
@@ -78,7 +78,7 @@
 - Lightweight, breathable clothes (shorts, t-shirts, sundresses)
 - Swimsuits (bring 2-3 so one can dry)
 - Light rain jacket or windbreaker
-- **Warm layers for Haleakala summit** — fleece jacket, beanie, gloves, warm pants. It's 30-40°F up there! Bring a blanket too.
+- **Warm layers for Haleakala summit** — fleece jacket, beanie, gloves, warm pants. It's -1 to 4°C up there! Bring a blanket too.
 - Comfortable walking shoes (for Road to Hana hikes and Haleakala)
 - Flip flops / sandals
 

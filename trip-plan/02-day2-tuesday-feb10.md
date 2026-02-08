@@ -8,8 +8,8 @@
 
 **Conditions:**
 - Showers and thunderstorms possible (60% chance)
-- Winds ENE 23 mph with **gusts to 60 mph**
-- High: 76°F
+- Winds ENE 37 km/h with **gusts to 97 km/h**
+- High: 24°C
 - Ocean: Rough, not safe for beginner surfing
 
 **🚨 SURF LESSON POSTPONED TO DAY 3**
@@ -89,7 +89,7 @@
 - **Safety:** Do NOT attempt snorkeling if ocean is rough. Don't try to swim in 60 mph winds.
 - **Surf school:** Confirm the reschedule to Wednesday. Most schools are understanding about weather.
 - **Silver lining:** This is a good "rest day" after travel. Catch up on sleep, relax, don't feel pressure to do anything major.
-- **Tomorrow (Day 3) will be MUCH better:** 78°F, only 20% rain, winds 20 mph (perfect for surfing!)
+- **Tomorrow (Day 3) will be MUCH better:** 26°C, only 20% rain, winds 32 km/h (perfect for surfing!)
 
 ---
 
