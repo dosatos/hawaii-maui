@@ -1,19 +1,34 @@
 # Day 1 — Monday, February 9: Arrival & Settle In
 
-**Theme:** Get oriented, stock up, first Maui sunset
+**Theme:** Get oriented, stock up, weather-flexible first evening
+
+---
+
+## ⚠️ WEATHER ALERT FOR TODAY
+
+**Active Warnings:**
+- **Flood Watch** through 6:00 PM HST
+- **High Wind Warning** through 6:00 PM HST
+- Heavy rain + thunderstorms (90% chance)
+- Winds 25-29 mph with **gusts to 60 mph**
+- High: 73°F, Low: 67°F
+
+**Impact:** Outdoor activities (beach walks, sunset viewing) may not be possible. Stay flexible!
 
 ---
 
 ## Schedule
 
-### Afternoon: Arrive & Stock Up
+### Midday: Arrival & Stock Up
 
 | Time | Activity | Details |
 |------|----------|---------|
-| Arrival | **Kahului Airport (OGG)** | Pick up rental car at the airport facility (short walk from terminal). Allow 30-60 min for paperwork during peak arrival times. |
-| First stop | **Costco Kahului** | 5 min from airport. **This stop saves you hundreds over the week.** |
-| +1 hr | **Drive to Ka'anapali** | ~45 min via Highway 30 through Ma'alaea/Lahaina corridor |
-| Check-in | **Ka'anapali Eldorado** | Explore resort: find the 3 pools, locate beach cabana shuttle pickup |
+| **11:00 AM** | **Arrive Kahului Airport (OGG)** | Flight lands. Deplane, baggage claim (~15-20 min). |
+| 11:30 AM | **Pick up rental car** | Walk to rental car facility. Allow 30-45 min for paperwork during peak times. Check vehicle condition, take photos. |
+| **12:00 PM** | **First stop: Costco Kahului** | 5 min from airport (540 Haleakala Hwy). **This stop saves you hundreds over the week.** |
+| 1:30 PM | **Drive to Ka'anapali** | ~45 min via Highway 30. Scenic but may have heavy rain. Drive carefully. |
+| 2:30 PM | **Check in: Ka'anapali Eldorado** | Early check-in if available (standard is 3-4 PM). If room not ready, leave bags and explore. |
+| 2:30-5:00 PM | **Settle in & explore resort** | Unpack, find the 3 pools, locate beach cabana shuttle pickup, walk around property |
 
 #### Costco Shopping List
 - Breakfast supplies: eggs, bread/bagels, fruit, yogurt, cereal, milk, juice
@@ -29,33 +44,50 @@
 
 ---
 
-### Evening: First Sunset at Ka'anapali
+### Evening: Weather-Flexible Plans
+
+⚠️ **Check conditions before heading out!** Heavy rain and 60 mph wind gusts forecast through 6 PM.
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 5:00 PM | **Walk to Whaler's Village** | 5-min stroll from Eldorado. Browse shops, get the lay of the land. |
-| 5:30 PM | **Ka'anapali Beach sunset** | Walk along the beachfront boardwalk. Look west — you may already spot whale spouts! February is peak season. |
-| 6:00 PM | **Dinner: Leilani's on the Beach** | Right on the sand at Whaler's Village |
+| 5:00 PM | **Check weather** | Look outside from your lanai. Is it raining? How hard is the wind? |
+| 5:00-6:00 PM | **Option A (if weather permits):** Walk to Whaler's Village, quick browse of shops | 5-min walk from Eldorado (covered walkways help) |
+| | **Option B (if heavy rain/wind):** Stay at condo, relax, unpack thoroughly | Rest after travel day |
+| 6:00 PM | **Dinner** | See options below |
+
+**⚠️ SKIP THE BEACH WALK AND SUNSET** — Not safe/enjoyable in 60 mph winds and heavy rain. Save it for Day 2 or 3.
 
 ---
 
-## Dinner: Leilani's on the Beach
+## Dinner Options (Weather-Dependent)
 
-- **Location:** Whaler's Village, Ka'anapali Beach (walkable from Eldorado)
+**Option A: Leilani's on the Beach** (if you can get there safely)
+- **Location:** Whaler's Village, Ka'anapali Beach (5-min walk from Eldorado, partially covered)
 - **Vibe:** Oceanfront, casual-upscale, live Hawaiian music
-- **Why:** Perfect first-night dinner — right on the beach, sunset views, relaxed atmosphere after a travel day
+- **Why:** Has covered seating options. Even in rain, you can dine comfortably.
 - **For the kid:** Dedicated keiki (children's) menu
 - **Price:** $$-$$$ (~$50-80 for a family of 3)
-- **Don't miss:** Sunset cocktail for the adults while listening to live music
-- **Reservation:** Recommended but not always required. Book on OpenTable.
+- **Reservation:** Call ahead to check if they're open given weather
+
+**Option B: Takeout to the Condo** (if weather is severe)
+- Order delivery or pickup from:
+  - Leilani's (takeout available)
+  - Duke's Beach House (5 min drive)
+  - Monkeypod Kitchen (check if they deliver)
+  - Local pizza/casual (DoorDash, UberEats)
+- Eat on your lanai or inside condo
+- **Smart choice** if you're exhausted from travel + don't want to deal with storm
 
 ---
 
 ## Practical Notes
 
-- **Jet lag/time adjustment:** Hawaii Standard Time (HST) is UTC-10. That's 2 hours behind Pacific, 5 hours behind Eastern. You'll feel it — consider an early bedtime tonight.
+- **Weather reality check:** This is an UNUSUAL storm system for Maui. Don't let Day 1 set your expectations — Days 3-7 forecast shows beautiful weather (mostly sunny, 20% isolated showers). This passes quickly!
+- **Safety first:** If driving in heavy rain, slow down. Visibility can drop quickly. If flooding on roads, turn around.
+- **Jet lag/time adjustment:** Hawaii Standard Time (HST) is UTC-10. That's 2 hours behind Pacific, 5 hours behind Eastern. You'll feel it — early bedtime is smart, especially since weather isn't great anyway.
 - **Grocery tip:** The full kitchen at the Eldorado is your budget superpower. Making breakfast and packing beach lunches from Costco supplies will save $50-75/day compared to eating every meal out.
 - **Beach cabana:** Ask at the front desk about cabana shuttle hours and how it works. The private beach cabana includes lounge chairs, restrooms, shaded area, and towel service.
+- **Tomorrow's surf lesson:** Day 2 also has bad weather (60% thunderstorms, 60 mph gusts). **Call surf school tonight or tomorrow AM to reschedule to Day 3 (Wed Feb 11)** — much better conditions!
 
 ---
 

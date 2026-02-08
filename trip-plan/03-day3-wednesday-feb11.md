@@ -1,18 +1,53 @@
-# Day 3 — Wednesday, February 11: South Maui Day Trip
+# Day 3 — Wednesday, February 11: Surf Lesson + South Maui
 
-**Theme:** Explore the other side of the island — different beaches, local food, whale watching from shore
+**Theme:** Learn to surf in great conditions, explore South Maui beaches
+
+---
+
+## ✅ GREAT WEATHER TODAY!
+
+**Forecast:**
+- High: 78°F
+- Isolated showers (only 20% chance)
+- Winds: ENE 20 mph, gusts to 28 mph
+- **Perfect conditions for beginner surfing!**
+
+**🏄 SURF LESSON MOVED TO TODAY** (from Day 2 due to storm)
 
 ---
 
 ## Schedule
 
-### Morning: Kamaole Beach Park III
+### Morning: Surf Lesson
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 7:30 AM | Breakfast at the condo | Costco supplies |
-| 8:00 AM | **Drive to South Maui** | ~45 min to Kihei via Highway 30 → Highway 31 |
-| 9:00-11:30 AM | **Kamaole Beach Park III** | Best family beach in South Maui |
+| 6:30 AM | Breakfast at condo | Light meal — eggs, toast, fruit. Don't eat too much before surfing. |
+| 7:15 AM | Drive to surf lesson location | Ka'anapali or Lahaina area |
+| **7:30-9:30 AM** | **BEGINNER SURF LESSON** | See details below |
+| 10:00 AM | Return to condo briefly | Rinse off, change, grab beach bag |
+| 10:15 AM | **Drive to South Maui** | ~45 min to Kihei via Highway 30 → Highway 31 |
+
+**Surf Lesson Details:**
+- **Duration:** 2 hours
+- **Cost:** ~$100-150 per person (group lesson) or ~$200-250 for private family lesson
+- **Total:** ~$300-450 for family of 3
+- **Where:** Schools operating at Ka'anapali/Lahaina:
+  - **Royal Hawaiian Surf Academy** (Ka'anapali)
+  - **Maui Surfer Girls** (girls-focused experience)
+  - **Goofy Foot Surf School** (Lahaina)
+- **What's included:** Board, rash guard, instruction
+- **Good for a 9-year-old?** Perfect age. Most kids stand up on first try.
+- **Conditions today:** Excellent! Light winds, small waves perfect for learning.
+
+---
+
+### Late Morning: Kamaole Beach Park III
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 11:00 AM | Arrive at **Kamaole Beach Park III** | Best family beach in South Maui |
+| 11:00 AM-1:00 PM | Beach time | Swim, relax after surf lesson |
 
 **Why Kamaole III:**
 - **Lifeguards on duty** — peace of mind
@@ -25,15 +60,14 @@
 
 ---
 
-### Late Morning: Shave Ice + Fish Tacos
+### Midday: Local Lunch
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 11:30 AM | **Ululani's Hawaiian Shave Ice** (Kihei) | 61 S Kihei Rd. If you tried it yesterday, try a different flavor combo today! |
-| 12:00 PM | **Coconuts Fish Café** | Lunch — see details below |
+| 1:00 PM | **Coconuts Fish Café** | 1279 S Kihei Rd, Kihei |
+| 2:00 PM | **Ululani's Hawaiian Shave Ice** (Kihei) | 61 S Kihei Rd. Different flavors from Day 2! |
 
 **Coconuts Fish Café:**
-- **Location:** 1279 S Kihei Rd, Kihei
 - **Vibe:** Casual surf-shack. Surfboards as tables. Bright and welcoming.
 - **Why:** Some of the best fish tacos on Maui. Island-style flavors, fresh catch daily.
 - **For the kid:** Friendly staff known for being patient with kids. Grilled fish, fish tacos, chicken strips.
@@ -49,8 +83,8 @@
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 1:30 PM | **Drive to Big Beach** | 15 min south from Kihei |
-| 1:45-3:00 PM | Walk, wade, photos | Stunning wide golden beach |
+| 2:30 PM | **Drive to Big Beach** | 15 min south from Kihei |
+| 2:45-4:00 PM | Walk, wade, photos | Stunning wide golden beach |
 
 - One of Maui's most beautiful beaches — wide, dramatic, feels remote
 - **DO NOT SWIM HERE.** Dangerous shore break causes serious injuries every year, especially for kids. The waves look fun but they slam you into the sand.
@@ -62,8 +96,8 @@
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 1:30 PM | **Drive to Ulua Beach** (Wailea) | 10 min south from Kihei |
-| 1:45-3:00 PM | Snorkeling | One of the best in South Maui |
+| 2:30 PM | **Drive to Ulua Beach** (Wailea) | 10 min south from Kihei |
+| 2:45-4:00 PM | Snorkeling | One of the best in South Maui |
 
 - Rocky reef between Ulua and Mokapu beaches is excellent for snorkeling
 - Sea turtles, tropical fish, sometimes octopus
@@ -77,9 +111,9 @@
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 4:00 PM | **Drive to Wailea** | 15 min from Kihei / 5 min from Ulua Beach |
-| 4:30 PM | Stroll the **Shops at Wailea** | Window shopping at Maui's upscale outdoor mall |
-| 5:30 PM | **Dinner: Monkeypod Kitchen** | |
+| 4:30 PM | **Drive to Wailea** | 15 min from Kihei / 5 min from Ulua Beach |
+| 5:00 PM | Stroll the **Shops at Wailea** | Window shopping at Maui's upscale outdoor mall |
+| 5:30 PM | **Dinner: Monkeypod Kitchen** | Take advantage of happy hour! |
 | 7:00 PM | Drive back to Ka'anapali | ~50 min |
 
 **Monkeypod Kitchen:**
@@ -96,6 +130,8 @@
 
 ## Practical Notes
 
+- **Post-surf care:** Your arms and shoulders will be sore from paddling! That's normal. Gentle stretching helps.
+- **Sunscreen reapplication:** You'll be in the water a lot today. Reapply reef-safe sunscreen every 90 minutes or after each swim.
 - **Driving tip:** The drive from Ka'anapali to South Maui goes through the Ma'alaea area on Highway 30. It's scenic (ocean views, sometimes whales visible from the road!) but can be slow in afternoon traffic heading back. Allow extra time for the return drive.
 - **McGregor Point:** On the drive between Ma'alaea and Ka'anapali, there's a lookout on the left side of the road (heading south). One of the best whale-watching spots on Maui. Worth a 5-min stop.
 - **Hydration:** South Maui is the driest part of Maui. Bring plenty of water from the condo.
@@ -107,8 +143,11 @@
 | Item | Cost |
 |------|------|
 | Breakfast & beach snacks | $0 (condo supplies) |
-| Ululani's shave ice (x3) | $20-25 |
+| **Surf lesson (family of 3)** | **$300-450** |
 | Coconuts Fish Café lunch | $30-45 |
+| Ululani's shave ice (x3) | $20-25 |
 | Dinner at Monkeypod Kitchen | $70-100 |
 | Gas | $10-15 |
-| **Day total** | **$130-185** |
+| **Day total** | **$430-635** |
+
+**Note:** This is your most expensive day due to the surf lesson, but it's worth it!
