@@ -1,6 +1,6 @@
-# Day 7 — Sunday, February 15: Kapalua Bay + World Whale Day Parade + Luau
+# Day 7 — Sunday, February 15: Kapalua Bay + Atlantis Submarine + Rest
 
-**Theme:** Best snorkeling of the trip, community parade, grand finale luau (SPLURGE #2)
+**Theme:** Best snorkeling of the trip (GUARANTEED sea turtles), underwater submarine adventure (SPLURGE #1), rest and pack before departure
 
 ---
 
@@ -10,7 +10,7 @@
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 7:00 AM | Breakfast at the condo | Light — you have a big luau feast tonight |
+| 7:00 AM | Breakfast at the condo | Light breakfast — eggs, toast, fruit |
 | 7:30 AM | **Drive to Kapalua Bay** | 15 min north from Ka'anapali Eldorado |
 | 7:45 AM | Arrive (EARLY for parking) | Small lot fills by 9 AM |
 | 8:00-10:30 AM | **Snorkel at Kapalua Bay** | Best family snorkeling on Maui |
@@ -39,163 +39,117 @@
 
 ---
 
-### Late Morning: Drive to South Kihei
+### Late Morning: Drive to Lahaina
 
 | Time | Activity | Details |
 |------|----------|---------|
 | 10:30 AM | Leave Kapalua | Rinse off, dry off, pack up |
-| 10:45 AM | **Drive to South Kihei** | ~55 min via Highway 30 |
-| 11:45 AM | Arrive for the parade | |
+| 10:45 AM | **Drive to Lahaina Harbor** | ~15 min via Lower Honoapiilani Rd |
+| 11:30 AM | Arrive at Atlantis Submarine check-in | Check in 30 min before departure |
 
 ---
 
-## World Whale Day Parade
-
-**What it is:**
-The grand finale of the World Whale Day Festival — a community parade down South Kihei Road with whale-themed floats, hula groups, marching bands, community organizations, and local businesses. Colorful, fun, and very Maui.
-
-**Time:** Typically 11:00 AM - 1:00 PM (check exact time closer to the date at [pacificwhale.org](https://pacificwhale.org))
-
-**Location:** South Kihei Road (the main drag through Kihei)
-
-**Where to watch:**
-- Set up along South Kihei Road anywhere between Kam I and Kam III beach parks
-- Bring a beach chair or just stand on the sidewalk
-- Locals bring pop-up canopies, coolers, and make a morning of it
-- **Best spot:** Near Kalama Park (central Kihei) — shade trees, grassy area, playgrounds for after the parade
-
-**What to expect:**
-- Whale-themed floats decorated by schools and community groups
-- Hula halau (schools) performing as they march
-- Live music from local bands
-- Costumed characters (whale mascots, ocean creatures)
-- Thrown candy and leis for kids
-- Local politicians and businesses
-- Pacific Whale Foundation representatives
-
-**Vibe:** Small-town parade, family-friendly, cheerful, low-key
-
-**Cost:** FREE
-
-**Duration:** Parade lasts ~1-1.5 hours. You can leave whenever you want.
-
----
-
-### Midday: Lunch & Rest
+### Midday: Atlantis Submarine (SPLURGE #1)
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 1:00 PM | **Lunch** | See options below |
-| 2:00 PM | Drive back to Ka'anapali | ~50 min |
-| 3:00 PM | **Rest time at the Eldorado** | Shower, nap, relax, pack for departure tomorrow |
-| 5:00 PM | Get ready for the luau | Wear comfortable casual clothes (no swimsuits) |
+| 12:00 PM | **Atlantis Submarine departure** | Check in 30 min before |
+| ~2:00 PM | Return to Lahaina Harbor | Total experience ~2 hours |
 
-**Lunch options in Kihei:**
-- **Food trucks at/near the parade** — Local vendors often set up along the parade route. Plate lunch, shave ice, poke bowls.
-- **808 Deli** (Kihei) — Sandwiches, salads, quick and good
-- **Coconuts Fish Café** — If you loved it on Day 3, go back
-- **Pack a picnic** — Grab supplies from the condo and eat at Kalama Park
+**Atlantis Submarine — What to Expect:**
 
-**Important:** Don't eat a huge lunch. You have a massive luau feast tonight at 5:30 PM.
+This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genuine 48-passenger Coast Guard-certified submarine that dives to **100-130 feet** below the surface.
+
+**The experience:**
+1. Board a surface vessel at Lahaina Harbor
+2. Short boat ride (~10 min) to the dive site offshore
+3. Transfer to the submarine (climb down a nearly vertical 10-step ladder)
+4. Descend to 100-130 feet depth
+5. View coral reef, tropical fish, sea turtles, and possibly sharks through large portholes
+6. Narrated by the crew — learn about the marine life you're seeing
+7. Ascend and transfer back to the surface vessel
+8. Boat ride back to harbor
+
+**Key details:**
+- **Cost:** $179/adult, $80/child (12 & under)
+- **Total family cost:** ~$438
+- **Height requirement:** Must be 36 inches tall (your 9-year-old is fine)
+- **Duration:** ~2 hours total (including boat transfers)
+- **Departure times:** 9 AM, 10 AM, 11 AM, 12 PM, 1 PM, 2 PM
+- **Your departure:** **12:00 PM (Sunday, Feb 15)**
+- **Operating days:** 4-5 days/week from Lahaina Harbor (confirm when booking)
+- **Safety record:** 38+ years of operation, 580,000+ safe dives, 18 million+ passengers worldwide
+- **Motion sickness:** The submarine itself is very stable underwater. The surface boat transfers are short. Most people don't get seasick.
+- **Book at:** [atlantisadventures.com/maui](https://www.atlantisadventures.com/maui)
+- **Book 1-2 weeks ahead** for February
+
+**Tips:**
+- Midday time slots are fine for visibility (mornings are slightly better, but 12 PM is still excellent)
+- Wear comfortable clothes — no swimsuit needed, you don't get wet
+- Bring a camera — you can photograph through the portholes
+- The ladder in/out is the trickiest part for kids. Your 9-year-old should be fine, but practice climbing a ladder if she's nervous.
 
 ---
 
-## Evening: Old Lahaina Luau (SPLURGE #2)
+### Afternoon: Rest & Pack for Departure
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 5:00 PM | Drive to Old Lahaina Luau | ~10 min from Eldorado (1251 Front St, Lahaina) |
-| 5:15 PM | Arrive | Gates open early — arrive as early as possible |
-| 5:15-6:00 PM | Pre-show activities | |
-| 6:00 PM | **Luau feast begins** | All-you-can-eat buffet |
-| 7:00 PM | **Hula performance begins** | Traditional Hawaiian hula show |
-| ~9:00 PM | Show ends | Drive back to Eldorado |
+| 2:00 PM | Quick lunch in Lahaina | See options below |
+| 2:30 PM | **Drive back to Ka'anapali** | ~10 min |
+| 3:00 PM | **Arrive at Eldorado** | |
+| 3:00-6:00 PM | **Rest and pack** | Final swim, pack suitcases, organize souvenirs |
+
+**Quick lunch options in Lahaina (before or after submarine):**
+- **Ululani's Hawaiian Shave Ice** (Lahaina location) — Light snack
+- **Grab food from a food truck** along Front Street
+- **Drive back to Eldorado and eat condo food** — Use up leftover groceries
+
+**Important afternoon tasks:**
+- **Pack for tomorrow's departure** — Lay out clothes, organize souvenirs, check for lost items around the condo
+- **Final beach or pool time** — Ka'anapali Beach or Eldorado pool
+- **Nap/rest** — You have an early morning tomorrow (check out and airport)
+- **Enjoy your last sunset from the lanai**
 
 ---
 
-## Old Lahaina Luau — What to Expect
+### Evening: Casual Dinner
 
-**Why this luau:**
-- Rated **#1 luau on Maui** consistently for decades
-- Most authentic and traditional (not a flashy Polynesian revue)
-- Focus on Hawaiian culture specifically
-- Intimate oceanfront setting
-- All-you-can-eat traditional Hawaiian feast
-- Live Hawaiian music throughout
+| Time | Activity | Details |
+|------|----------|---------|
+| 6:00 PM | **Casual dinner** | See options below |
+| 7:30 PM | Final evening at the condo | Finish packing, early to bed |
 
-**Cost:**
-- ~$230/adult
-- ~$160/child (ages 2-12)
-- **Total for your family: ~$620**
-- Includes everything: feast, show, lei greeting, open bar (mai tais, beer, wine, cocktails for adults), non-alcoholic drinks
+**Dinner Options:**
 
-**Reservation:**
-- **Book 2-3 months in advance** — it WILL sell out for February
-- Book at [oldlahainaluau.com](https://oldlahainaluau.com)
-- Choose "Traditional Seating" (on floor mats with backrests) or "Table Seating" (at regular tables). Table seating is easier for families.
-- **Arrive early** — Best seats (closest to the stage and ocean) are first-come, first-served within your seating category
+**Option 1: Use Up Condo Groceries (RECOMMENDED)**
+- **Why:** Save money, relax at home, you have leftover groceries
+- **What:** Make sandwiches, pasta, salads, whatever you have left
+- **Where:** Eat on your lanai and watch the sunset
 
-**Schedule:**
-1. **Arrival (5:15 PM)** — Lei greeting, welcome mai tai (or juice)
-2. **Pre-show activities (5:15-6:00 PM):**
-   - Watch the **imu ceremony** (unearth the kalua pig from the underground oven)
-   - Learn traditional Hawaiian arts and crafts (lei making, hula lessons, spear throwing, temporary tattoos)
-   - Explore the cultural village
-   - Stroll the oceanfront lawn
-   - Bar opens (mai tais, Maui Brewing beer, wine, cocktails, juice, soda)
-3. **Feast begins (6:00 PM):**
-   - Buffet opens by seating section
-   - All-you-can-eat traditional Hawaiian foods (see menu below)
-4. **Hula show (7:00 PM):**
-   - ~2 hours of traditional Hawaiian hula and storytelling
-   - Journey through Hawaiian history from ancient times to modern day
-   - Multiple hula styles (ancient kahiko and modern auana)
-   - Live Hawaiian band
-   - Male and female dancers
-   - Dramatic fire knife finale (though less emphasized than at other luaus)
+**Option 2: Casual Dining Out**
+- **Duke's Beach House** (Ka'anapali) — Oceanfront, fresh seafood, relaxed vibe. Walking distance from Eldorado.
+- **Hula Grill** (Whaler's Village) — Easy walk, beachfront dining, fish tacos, burgers
+- **CJ's Deli & Diner** (Whaler's Village) — Quick sandwiches, breakfast all day, casual
 
-**The Feast (All-You-Can-Eat Buffet):**
-- **Kalua pig** (pit-roasted pork, smoky and tender — the star)
-- **Lomi lomi salmon** (diced salmon with tomatoes and onions)
-- **Chicken long rice** (chicken with clear noodles in broth)
-- **Poi** (pounded taro root — an acquired taste, try a tiny bit)
-- **Haupia** (coconut milk dessert, like a firm pudding)
-- **Fresh island fish** (usually mahi mahi or ono, grilled)
-- **Sweet potato** (purple Okinawan sweet potato)
-- **Fresh fruit** (pineapple, papaya, watermelon)
-- **Green salad** with tropical dressings
-- **Rolls** and butter
-- **Teriyaki beef** (for less adventurous palates)
-- **Mac salad** (for the keiki)
-- **Chicken tenders** (for kids)
-- Open bar for adults (mai tais, wine, Maui Brewing beer, cocktails)
+**Option 3: Takeout to Your Lanai**
+- **Pizza from Whaler's Village**
+- **Poke bowls from a local shop**
+- Eat on your lanai, enjoy your last Maui sunset
 
-**For your 9-year-old:**
-- Kids generally love the fire dancing at the end (if included) and the cultural activities before the show
-- The buffet has kid-friendly options (chicken tenders, mac salad, fruit, rolls)
-- The show is long (2 hours) but engaging. Hula tells stories, so it's more interesting than just watching dancing.
-- Bring a light sweater — it can get breezy by the ocean after sunset
-
-**Dress code:**
-- Aloha attire / Island casual
-- No swimsuits, tank tops, or beachwear
-- Sundresses, shorts with nice tops, aloha shirts, casual slacks
-- Bring a light sweater or shawl for evening breeze
-
-**Photos:**
-- Photography is allowed during the feast and most of the show (no flash during performances)
-- The sunset backdrop is stunning — arrive early for photos
-
-**Parking:**
-- Free on-site parking
+**Recommendation:** Option 1 (condo dinner) to save money and have a relaxed evening before your early departure tomorrow.
 
 ---
 
 ## Practical Notes
 
-- **Pacing:** This is your last full day. You've been go-go-go all week. Build in rest time in the afternoon.
-- **Packing:** Start packing tonight for tomorrow's departure. Lay out clothes, check for lost items, organize souvenirs.
+- **Perfect timing:** Kapalua snorkeling ends 10:30 AM → 15 min drive to Lahaina → arrive 11:30 AM for 12:00 PM submarine departure. The timing works perfectly!
+- **Kapalua parking:** Arrive by 7:45 AM for parking (only ~25 spaces, fills by 9 AM). This is CRITICAL.
+- **Pacing:** This is your last full day. You've been go-go-go all week. The afternoon is intentionally light — rest, pack, enjoy the resort.
+- **Packing:** Use the afternoon to pack for tomorrow's departure. Lay out clothes, check for lost items around the condo, organize souvenirs.
 - **Gas:** Fill up today so you're not rushed tomorrow morning before your flight.
+- **Skipping the parade:** The World Whale Day Parade (typically 11 AM-1 PM in South Kihei) conflicts with the submarine timing. You'd be rushing and stressed. Kapalua snorkeling + submarine is a better use of your last full day.
+- **Early to bed:** You have check-out and airport tomorrow morning. Get to bed early tonight.
 
 ---
 
@@ -203,8 +157,11 @@ The grand finale of the World Whale Day Festival — a community parade down Sou
 
 | Item | Cost |
 |------|------|
-| Breakfast & lunch | $0-30 (condo supplies + light lunch) |
-| World Whale Day Parade | FREE |
-| Old Lahaina Luau (2 adults + 1 child) | ~$620 |
+| Breakfast | $0 (condo supplies) |
+| Light lunch in Lahaina | $0-30 (food truck, shave ice, or condo leftovers) |
+| **Atlantis Submarine (2 adults + 1 child)** | **~$438** |
+| Casual dinner | $0-50 (condo groceries or casual takeout) |
 | Gas | $10-15 |
-| **Day total** | **$630-665** |
+| **Day total** | **$448-533** |
+
+**Note:** This is less expensive than the original plan (which had the luau at ~$620-665), saving ~$132-182!

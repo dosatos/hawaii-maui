@@ -27,22 +27,22 @@
 |-----|------|-------|-----------|
 | **1** | Mon 2/9 | Arrival & Settle | Costco run, explore resort, **weather-dependent dinner** |
 | **2** | Tue 2/10 | Weather Backup | Flexible indoor/covered activities, postpone surf lesson |
-| **3** | Wed 2/11 | **Surf Lesson** + South Maui | Learn to surf (moved from Day 2), Kamaole Beach, Monkeypod Kitchen |
-| **4** | Thu 2/12 | Atlantis Submarine ⭐ + 'Iao Valley ⭐ | Dive to 100 ft, The Fish Market lunch, sacred valley, Pa'ia |
+| **3** | Wed 2/11 | **Snorkeling + Luau** ⭐ | Ulua Beach or Black Rock, South Maui, Old Lahaina Luau |
+| **4** | Thu 2/12 | 'Iao Valley ⭐ + Pa'ia | Optional surf lesson, sacred valley, North Shore charm |
 | **5** | Fri 2/13 | Road to Hana | 620 curves, waterfalls, black sand beach, lava tube caves |
 | **6** | Sat 2/14 | Haleakala Sunrise + Whale Day | 3 AM wake-up, 10,023 ft summit, marine science festival |
-| **7** | Sun 2/15 | Kapalua + Luau ⭐ | Snorkeling, World Whale Day Parade, Old Lahaina Luau |
+| **7** | Sun 2/15 | Kapalua + Submarine ⭐ | Best snorkeling (sea turtles), Atlantis dive to 100 ft, rest & pack |
 | **8** | Mon 2/16 | Departure | The Gazebo breakfast, final beach time, fly home |
 
 ---
 
 ## 🎯 Two Premium Splurge Experiences
 
-### 1. Atlantis Submarine (Day 4) — ~$438 total
-Real 48-passenger submarine diving to 100-130 feet off Lahaina. See coral reefs, tropical fish, sea turtles. Operating 4-5 days/week from Lahaina Harbor. **Book 1-2 weeks ahead.**
+### 1. Atlantis Submarine (Day 7) — ~$438 total
+Real 48-passenger submarine diving to 100-130 feet off Lahaina. See coral reefs, tropical fish, sea turtles. Departure: **Sunday, Feb 15 at 12:00 PM** from Lahaina Harbor. **Book 1-2 weeks ahead.**
 
-### 2. Old Lahaina Luau (Day 7) — ~$620 total
-Maui's #1 authentic luau. Oceanfront setting, traditional Hawaiian feast (kalua pig, poi, haupia), hula performance, lei greeting. **Book 2-3 months in advance** — sells out early!
+### 2. Old Lahaina Luau (Day 3) — ~$620 total
+Maui's #1 authentic luau. Oceanfront setting, traditional Hawaiian feast (kalua pig, poi, haupia), hula performance, lei greeting. **Wednesday, Feb 11 at 5:15 PM.** **Book 2-3 months in advance** — sells out early!
 
 ---
 
@@ -93,8 +93,8 @@ Peak humpback whale season! Festival events during your trip:
 | What | Deadline | Where | Cost |
 |------|----------|-------|------|
 | **Haleakala Sunrise** | 60 days ahead (Dec 16 for Feb 14) | [recreation.gov](https://www.recreation.gov/ticket/facility/253731) | $1 + $30 park entry |
-| **Old Lahaina Luau** | 2-3 months ahead | [oldlahainaluau.com](https://oldlahainaluau.com/) | ~$230/adult, ~$160/child |
-| **Atlantis Submarine** | 1-2 weeks ahead | [atlantisadventures.com](https://www.atlantisadventures.com/maui) | ~$179/adult, $80/child |
+| **Old Lahaina Luau (Wed 2/11)** | 2-3 months ahead | [oldlahainaluau.com](https://oldlahainaluau.com/) | ~$230/adult, ~$160/child |
+| **Atlantis Submarine (Sun 2/15 @ 12 PM)** | 1-2 weeks ahead | [atlantisadventures.com](https://www.atlantisadventures.com/maui) | ~$179/adult, $80/child |
 | **Wai'anapanapa State Park** | 2+ weeks ahead | [Hawaii DLNR](https://www.gostateparks.hawaii.gov/) | ~$10/vehicle |
 | **Surf lesson** | 1-2 weeks ahead | Local surf schools | ~$100-150/person |
 | **Car rental** | ASAP (Feb is peak season) | Costco Travel, AutoSlash, Kayak | $80-130/day |
@@ -122,11 +122,11 @@ Roadside viewpoint on Road to Hana. Quick photo stop.
 - **[Overview & Practical Info](trip-plan/00-overview.md)** — Weather, packing list, car rental, beaches, Lahaina status
 - **[Day 1 — Mon 2/9: Arrival](trip-plan/01-day1-monday-feb9.md)** — 11 AM arrival, Costco run, weather-flexible evening
 - **[Day 2 — Tue 2/10: Weather Backup](trip-plan/02-day2-tuesday-feb10.md)** — Indoor/covered activities, postpone surf lesson
-- **[Day 3 — Wed 2/11: Surf Lesson + South Maui](trip-plan/03-day3-wednesday-feb11.md)** — Learn to surf, Coconuts Fish Café, Monkeypod Kitchen
-- **[Day 4 — Thu 2/12: Submarine + 'Iao Valley](trip-plan/04-day4-thursday-feb12.md)** — Atlantis dive, sacred valley, Pa'ia
+- **[Day 3 — Wed 2/11: Snorkeling + Luau](trip-plan/03-day3-wednesday-feb11.md)** — Ulua Beach or Black Rock, South Maui, Old Lahaina Luau
+- **[Day 4 — Thu 2/12: 'Iao Valley + Pa'ia](trip-plan/04-day4-thursday-feb12.md)** — Optional surf lesson, sacred valley, North Shore charm
 - **[Day 5 — Fri 2/13: Road to Hana](trip-plan/05-day5-friday-feb13.md)** — Waterfalls, black sand beach, lava tubes, banana bread
 - **[Day 6 — Sat 2/14: Haleakala + Whale Day](trip-plan/06-day6-saturday-feb14.md)** — 3 AM sunrise, 10,023 ft summit, marine festival
-- **[Day 7 — Sun 2/15: Kapalua + Luau](trip-plan/07-day7-sunday-feb15.md)** — Snorkeling, parade, Old Lahaina Luau
+- **[Day 7 — Sun 2/15: Kapalua + Submarine](trip-plan/07-day7-sunday-feb15.md)** — Best snorkeling (sea turtles), Atlantis dive, rest & pack
 - **[Day 8 — Mon 2/16: Departure](trip-plan/08-day8-monday-feb16.md)** — The Gazebo, final beach time, fly home
 - **[Reservations Checklist](trip-plan/09-reservations-checklist.md)** — Complete booking timeline with links
 

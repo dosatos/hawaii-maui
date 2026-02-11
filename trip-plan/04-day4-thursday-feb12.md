@@ -1,77 +1,72 @@
-# Day 4 — Thursday, February 12: Atlantis Submarine + 'Iao Valley
+# Day 4 — Thursday, February 12: 'Iao Valley + Pa'ia Town
 
-**Theme:** Underwater adventure (SPLURGE #1) + Sacred Hawaiian valley + Pa'ia Town
+**Theme:** Optional surf lesson + Sacred Hawaiian valley (MUST VISIT) + North Shore charm
 
 ---
 
 ## Schedule
 
-### Morning: Atlantis Submarine (SPLURGE #1)
+### Morning Options
+
+**Option A: Surf Lesson (Reschedule from Day 3)**
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 8:30 AM | Breakfast at the condo | |
-| 9:15 AM | **Drive to Lahaina Harbor** | 5-10 min from Eldorado |
-| 10:00 AM | **Atlantis Submarine departure** | Check in 30 min before your time slot |
-| ~12:00 PM | Return to Lahaina Harbor | Total experience ~2 hours |
+| 7:00 AM | Breakfast at condo | Light meal — don't eat too much before surfing |
+| 7:15 AM | Drive to surf lesson location | Ka'anapali or Lahaina area |
+| **7:30-9:30 AM** | **BEGINNER SURF LESSON** | See details below |
+| 10:00 AM | Return to condo briefly | Rinse off, change, grab lunch supplies |
 
-**Atlantis Submarine — What to Expect:**
+**Surf Lesson Details:**
+- **Duration:** 2 hours
+- **Cost:** ~$100-150 per person (group lesson) or ~$200-250 for private family lesson
+- **Total:** ~$300-450 for family of 3
+- **Where:** Schools operating at Ka'anapali/Lahaina:
+  - **Royal Hawaiian Surf Academy** (Ka'anapali)
+  - **Maui Surfer Girls** (girls-focused experience)
+  - **Goofy Foot Surf School** (Lahaina)
+- **What's included:** Board, rash guard, instruction
+- **Good for a 9-year-old?** Perfect age. Most kids stand up on first try.
+- **Conditions today:** Excellent! Light winds, small waves perfect for learning.
+- **Booking:** Call 1-2 weeks ahead or book online
 
-This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genuine 48-passenger Coast Guard-certified submarine that dives to **100-130 feet** below the surface.
+**Option B: Relaxed Morning**
 
-**The experience:**
-1. Board a surface vessel at Lahaina Harbor
-2. Short boat ride (~10 min) to the dive site offshore
-3. Transfer to the submarine (climb down a nearly vertical 10-step ladder)
-4. Descend to 100-130 feet depth
-5. View coral reef, tropical fish, sea turtles, and possibly sharks through large portholes
-6. Narrated by the crew — learn about the marine life you're seeing
-7. Ascend and transfer back to the surface vessel
-8. Boat ride back to harbor
+| Time | Activity | Details |
+|------|----------|---------|
+| 8:00-10:00 AM | Sleep in, leisurely breakfast | Enjoy condo breakfast, relax by pool |
+| 10:00 AM | Depart for 'Iao Valley | 30 min drive |
 
-**Key details:**
-- **Cost:** $179/adult, $80/child (12 & under)
-- **Total family cost:** ~$438
-- **Height requirement:** Must be 36 inches tall (your 9-year-old is fine)
-- **Duration:** ~2 hours total (including boat transfers)
-- **Departure times:** 9 AM, 10 AM, 11 AM, 12 PM, 1 PM, 2 PM
-- **Operating days:** 4-5 days/week from Lahaina Harbor (confirm when booking)
-- **Safety record:** 38+ years of operation, 580,000+ safe dives, 18 million+ passengers worldwide
-- **Motion sickness:** The submarine itself is very stable underwater. The surface boat transfers are short. Most people don't get seasick.
-- **Book at:** [atlantisadventures.com/maui](https://www.atlantisadventures.com/maui)
-- **Book 1-2 weeks ahead** for February
-
-**Tips:**
-- Morning time slots tend to have better underwater visibility
-- Wear comfortable clothes — no swimsuit needed, you don't get wet
-- Bring a camera — you can photograph through the portholes
-- The ladder in/out is the trickiest part for kids. Your 9-year-old should be fine, but practice climbing a ladder if she's nervous.
+**Recommendation:** If you're feeling energetic and the weather is good, do the surf lesson! If you're tired from yesterday's full day (snorkeling + luau), take it easy with Option B.
 
 ---
 
-### Midday: Lunch at The Fish Market Maui ⭐
+### Late Morning: Lunch Options
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 12:15 PM | **The Fish Market Maui** | 3600 Lower Honoapiilani Rd, Lahaina (10 min from harbor) |
+| 11:00 AM | Lunch before 'Iao Valley | See options below |
 
-⭐ **Friend's Recommendation!**
-
+**Option 1: The Fish Market Maui ⭐ (Friend's Recommendation)**
+- **Location:** 3600 Lower Honoapiilani Rd, Lahaina (10 min from Ka'anapali, 20 min from 'Iao Valley)
 - **Vibe:** Casual, local favorite, fresh seafood market with prepared food
-- **Why:** Fresh-caught fish daily, poke bowls, fish tacos, plate lunches. Your friend Natallia recommended this!
+- **Why:** Fresh-caught fish daily, poke bowls, fish tacos, plate lunches. Your friend recommended this!
 - **For the kid:** Fish and chips, fish tacos, grilled fish plates
-- **Don't miss:** The fresh poke bowls (multiple varieties), fish tacos, daily catch specials
 - **Price:** $$ (~$45-55 for a family of 3)
 - **No reservation needed** — order at counter, casual seating
 
+**Option 2: Pack Sandwiches from Condo**
+- **Why:** Save money and time
+- **When:** If you did the surf lesson, you might be running late — easier to grab sandwiches and eat on the way or at 'Iao Valley
+
 ---
 
-### Afternoon: 'Iao Valley State Park ⭐
+### Late Morning/Afternoon: 'Iao Valley State Park ⭐
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 1:30 PM | **Drive to 'Iao Valley State Park** | ~30 min from Lahaina via Highway 30 → Wailuku |
-| 2:00-3:30 PM | **Explore 'Iao Valley** | See details below |
+| 11:30 AM | **Drive to 'Iao Valley State Park** | ~30 min from Ka'anapali via Highway 30 → Wailuku (OR 1:30 PM if you did surf lesson) |
+| 12:00-1:30 PM | **Explore 'Iao Valley** | See details below (OR 2:00-3:30 PM if you did surf lesson) |
 
 ⭐ **Friend's "MUST VISIT" Recommendation!**
 
@@ -93,13 +88,15 @@ One of Maui's most sacred and historically significant locations. A lush, mystic
 - **Kepaniwai Heritage Gardens** — Small botanical garden celebrating different ethnic groups in Hawaii (Japanese, Chinese, Portuguese, Filipino gardens)
 
 **Key details:**
-- **Entry fee:** $10/vehicle + $5/person (Hawaii residents free)
+- **Entry fee:** $10/vehicle + $5/person = $25 total for family of 3 (Hawaii residents free)
 - **Hours:** 7:00 AM - 7:00 PM daily
 - **Time needed:** 1-1.5 hours
-- **Difficulty:** Easy paved trail, suitable for all ages
-- **Best time:** Morning (less crowded) or mid-afternoon (like your timing)
+- **Difficulty:** Easy 0.6-mile paved trail, very kid-friendly, suitable for all ages
+- **Best time:** Morning (less crowded) or mid-afternoon
 - **Weather:** Can be rainy and muddy — it's a rainforest valley. Bring light rain jacket just in case.
 - **Parking:** Small lot, can fill up midday. Arrive early or late afternoon for easier parking.
+- **NO RESERVATION NEEDED** — just pay entry fee when you arrive
+- **Bring:** Light rain jacket, shoes with good traction
 
 **Why it's special:**
 - One of Maui's most iconic landscapes
@@ -114,8 +111,8 @@ One of Maui's most sacred and historically significant locations. A lush, mystic
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 4:00 PM | **Drive to Pa'ia** | ~40 min via Highway 36 through Kahului |
-| 4:45-6:00 PM | **Explore Pa'ia town** | Charming North Shore surf town |
+| 3:00 PM | **Drive to Pa'ia** | ~40 min via Highway 36 through Kahului |
+| 3:45-5:30 PM | **Explore Pa'ia town** | Charming North Shore surf town |
 
 **Pa'ia Town highlights:**
 - Small, walkable downtown with surf shops, boutiques, art galleries
@@ -160,26 +157,41 @@ One of Maui's most sacred and historically significant locations. A lush, mystic
 
 ## Practical Notes
 
+- **Surf lesson decision:** Make this call based on how you're feeling after yesterday's full day (snorkeling + luau). The forecast is excellent for surfing, but it's also okay to skip it and have a relaxed morning.
 - **'Iao Valley weather:** It's a rainforest valley — expect occasional rain. Bring light rain jacket and wear shoes with good traction (can be slippery when wet).
 - **'Iao Valley parking:** Small lot. If full, there's overflow parking at the nearby baseball field (short walk).
 - **Pa'ia parking:** Can be tight on the main street. There's a free public lot behind the shops. If full, there's more parking along Baldwin Avenue.
 - **Timing Pa'ia:** Going in the late afternoon is smart — morning Pa'ia is crowded with Road to Hana traffic. By 4-5 PM, it's mellowed out.
 - **Gas tip:** Fill up in Kahului on the way to Pa'ia if needed. Pa'ia has limited gas stations.
-- **This is a FULL day:** Submarine in morning, 'Iao Valley midday, Pa'ia evening. You'll cover a lot of ground. If you're tired, consider skipping Pa'ia and heading back to the condo after 'Iao Valley.
+- **Flexibility:** If you're tired after 'Iao Valley, consider skipping Pa'ia and heading back to the condo for a relaxed evening. You have a BIG day tomorrow (Road to Hana).
 
 ---
 
 ## Day 4 Budget Estimate
 
+### Without Surf Lesson:
+
 | Item | Cost |
 |------|------|
 | Breakfast & snacks | $0 (condo supplies) |
-| Atlantis Submarine (2 adults + 1 child) | ~$438 |
-| The Fish Market lunch | $45-55 |
+| The Fish Market lunch (or packed sandwiches) | $45-55 ($0 if packed) |
 | 'Iao Valley entry | $25 ($10 vehicle + $15 for 3 people) |
 | Tobi's Poke | $15-25 |
 | Flatbread Company dinner | $40-60 |
 | Gas | $15-20 |
-| **Day total** | **$578-623** |
+| **Day total** | **$140-185** (or **$95-130** with packed lunch) |
 
-**Note:** This is your most expensive day due to the Atlantis Submarine splurge, but it's packed with incredible experiences!
+### With Surf Lesson:
+
+| Item | Cost |
+|------|------|
+| Breakfast & snacks | $0 (condo supplies) |
+| **Surf lesson (family of 3)** | **$300-450** |
+| The Fish Market lunch (or packed sandwiches) | $45-55 ($0 if packed) |
+| 'Iao Valley entry | $25 |
+| Tobi's Poke | $15-25 |
+| Flatbread Company dinner | $40-60 |
+| Gas | $15-20 |
+| **Day total** | **$440-635** (or **$395-580** with packed lunch) |
+
+**Note:** This is a more flexible day budget-wise. If you skip the surf lesson and pack lunch, it's one of your cheapest days!

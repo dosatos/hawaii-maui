@@ -42,7 +42,7 @@ These require advance booking and have limited availability.
 
 ### 2. Old Lahaina Luau ⭐ HIGH PRIORITY
 
-**What:** Traditional Hawaiian luau (Day 7: Sunday, Feb 15) — SPLURGE #2
+**What:** Traditional Hawaiian luau (Day 3: Wednesday, Feb 11) — SPLURGE #2
 
 **When to book:** 2-3 months in advance (opens ~6 months ahead, sells out weeks in advance for peak dates)
 - **Book by mid-November 2025** at the latest
@@ -54,7 +54,7 @@ These require advance booking and have limited availability.
 - **Total for family of 3: ~$620**
 
 **What to choose:**
-- **Date:** Sunday, February 15, 2026
+- **Date:** Wednesday, February 11, 2026
 - **Seating:** "Table Seating" (easier for families) or "Traditional Seating" (on mats with backrests)
 - **Arrival time:** Gates open at 5:15 PM; show starts around 7:00 PM
 
@@ -71,7 +71,7 @@ These require advance booking and have limited availability.
 
 ### 3. Atlantis Submarine ⭐ MODERATE PRIORITY
 
-**What:** Real submarine dive to 100-130 feet (Day 4: Thursday, Feb 12) — SPLURGE #1
+**What:** Real submarine dive to 100-130 feet (Day 7: Sunday, Feb 15) — SPLURGE #1
 
 **When to book:** 1-2 weeks in advance
 - Can book sooner, but availability is usually decent
@@ -86,16 +86,17 @@ These require advance booking and have limited availability.
 - Must be able to climb a vertical 10-step ladder independently
 
 **What to choose:**
-- **Date:** Thursday, February 12, 2026
+- **Date:** Sunday, February 15, 2026
 - **Departure location:** Lahaina Harbor
-- **Time:** Morning departures (9-11 AM) have best underwater visibility
-- **Operating days:** Confirm they're running on Feb 12 (typically 4-5 days/week)
+- **Time:** **12:00 PM departure** (midday slots also have excellent visibility)
+- **Operating days:** Confirm they're running on Feb 15 (typically 4-5 days/week)
 
 **Tips:**
 - Check their operating schedule first (they may not run every day)
 - Confirm Lahaina Harbor operations (submarine resumed there in Dec 2025)
 - Book online for small discount vs. booking at the harbor
-- Arrive 30 minutes before your departure time
+- Arrive 30 minutes before your departure time (11:30 AM for 12:00 PM departure)
+- **Perfect timing:** You'll finish Kapalua snorkeling at 10:30 AM, then drive 15 min to Lahaina, arriving at 11:30 AM
 
 ---
 
@@ -128,7 +129,7 @@ These require advance booking and have limited availability.
 
 ### 5. Surf Lesson (or Kayak Tour)
 
-**What:** Beginner family surf lesson (Day 2: Tuesday, Feb 10)
+**What:** Beginner family surf lesson (Day 4: Thursday, Feb 12 - OPTIONAL)
 
 **When to book:** 1-2 weeks in advance
 
@@ -141,9 +142,11 @@ These require advance booking and have limited availability.
 - **Total for family: ~$300-450**
 
 **What to choose:**
-- **Date:** Tuesday, February 10, 2026
-- **Time:** Morning (8-10 AM start) for best conditions
+- **Date:** Thursday, February 12, 2026 (optional - only if you want to do it)
+- **Time:** Morning (7:30-9:30 AM) for best conditions
 - **Location:** Ka'anapali or nearby beach
+
+**Note:** This is now OPTIONAL. If you're tired after Day 3's full day (snorkeling + luau), you can skip the surf lesson and have a relaxed morning before 'Iao Valley.
 
 **Alternative if surf isn't appealing:**
 - **Kayak + snorkel tour:** Similar cost, paddle along coast and snorkel with turtles
@@ -225,11 +228,11 @@ These are walk-in / first-come, first-served:
 | When | What to Book |
 |------|-------------|
 | **NOW** | Car rental (monitor for price drops) |
-| **Mid-November 2025** | Old Lahaina Luau (Feb 15) |
+| **Mid-November 2025** | Old Lahaina Luau (Feb 11 - WEDNESDAY) |
 | **December 15, 2025 @ 7:00 AM HST** | Haleakala sunrise (Feb 14) — SET ALARM! |
 | **Late January 2026** | Wai'anapanapa State Park (Feb 13) |
-| **Late January 2026** | Atlantis Submarine (Feb 12) |
-| **Early February 2026** | Surf lesson (Feb 10) |
+| **Late January 2026** | Atlantis Submarine (Feb 15 - SUNDAY 12:00 PM) |
+| **Early February 2026** | Surf lesson (Feb 12 - OPTIONAL) |
 | **Early February 2026** | Valentine's dinner (Feb 14) |
 | **1 week before trip** | Other restaurant reservations via OpenTable |
 
@@ -240,16 +243,15 @@ These are walk-in / first-come, first-served:
 Print this and check off as you book:
 
 - [ ] **Car rental booked** (Kahului Airport, Feb 9-16)
-- [ ] **Old Lahaina Luau booked** (Feb 15, evening)
+- [ ] **Old Lahaina Luau booked** (Feb 11 WEDNESDAY, evening 5:15 PM arrival)
 - [ ] **Haleakala sunrise reservation** (Feb 14, 5:00-7:00 AM window) — SET ALARM FOR DEC 15!
-- [ ] **Atlantis Submarine booked** (Feb 12, morning departure from Lahaina Harbor)
+- [ ] **Atlantis Submarine booked** (Feb 15 SUNDAY, 12:00 PM departure from Lahaina Harbor)
 - [ ] **Wai'anapanapa State Park reservation** (Feb 13, late morning)
-- [ ] **Surf lesson booked** (Feb 10, morning)
+- [ ] **Surf lesson booked** (Feb 12, morning - OPTIONAL, only if you want to do it)
 - [ ] **Valentine's dinner reservation** (Feb 14, Duke's or Monkeypod)
 - [ ] **Hula Grill reservation** (Feb 10, dinner via OpenTable)
 - [ ] **Leilani's on the Beach reservation** (Feb 9, dinner via OpenTable)
 - [ ] **Flatbread Company reservation** (Feb 12, dinner)
-- [ ] **Monkeypod Kitchen reservation** (Feb 11, dinner via OpenTable)
 - [ ] **Flights confirmed** (arrive Feb 9, depart Feb 16)
 - [ ] **Ka'anapali Eldorado confirmation** (check-in Feb 9, check-out Feb 16)
 - [ ] **Travel insurance** (optional but recommended)
