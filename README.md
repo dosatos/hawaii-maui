@@ -30,8 +30,8 @@
 | **3** | Wed 2/11 | **Snorkeling + Luau** ⭐ | Ulua Beach or Black Rock, South Maui, Old Lahaina Luau |
 | **4** | Thu 2/12 | 'Iao Valley ⭐ + Pa'ia | Optional surf lesson, sacred valley, North Shore charm |
 | **5** | Fri 2/13 | Road to Hana | 620 curves, waterfalls, black sand beach, lava tube caves |
-| **6** | Sat 2/14 | Haleakala Sunrise + Whale Day | 3 AM wake-up, 10,023 ft summit, marine science festival |
-| **7** | Sun 2/15 | Kapalua + Submarine ⭐ | Best snorkeling (sea turtles), Atlantis dive to 100 ft, rest & pack |
+| **6** | Sat 2/14 | Snorkeling + Whale Day | Morning snorkeling session #3, marine science festival, Valentine's dinner |
+| **7** | Sun 2/15 | Rainy Day + Submarine ⭐ | Relaxed rainy morning, Atlantis dive to 100 ft, pack for departure |
 | **8** | Mon 2/16 | Departure | The Gazebo breakfast, final beach time, fly home |
 
 ---
@@ -92,11 +92,9 @@ Peak humpback whale season! Festival events during your trip:
 
 | What | Deadline | Where | Cost |
 |------|----------|-------|------|
-| **Haleakala Sunrise** | 60 days ahead (Dec 16 for Feb 14) | [recreation.gov](https://www.recreation.gov/ticket/facility/253731) | $1 + $30 park entry |
 | **Old Lahaina Luau (Wed 2/11)** | 2-3 months ahead | [oldlahainaluau.com](https://oldlahainaluau.com/) | ~$230/adult, ~$160/child |
 | **Atlantis Submarine (Sun 2/15 @ 12 PM)** | 1-2 weeks ahead | [atlantisadventures.com](https://www.atlantisadventures.com/maui) | ~$179/adult, $80/child |
-| **Wai'anapanapa State Park** | 2+ weeks ahead | [Hawaii DLNR](https://www.gostateparks.hawaii.gov/) | ~$10/vehicle |
-| **Surf lesson** | 1-2 weeks ahead | Local surf schools | ~$100-150/person |
+| **Wai'anapanapa State Park (Fri 2/13)** | 2+ weeks ahead | [Hawaii DLNR](https://www.gostateparks.hawaii.gov/) | ~$10/vehicle |
 | **Car rental** | ASAP (Feb is peak season) | Costco Travel, AutoSlash, Kayak | $80-130/day |
 
 ---
@@ -125,8 +123,8 @@ Roadside viewpoint on Road to Hana. Quick photo stop.
 - **[Day 3 — Wed 2/11: Snorkeling + Luau](trip-plan/03-day3-wednesday-feb11.md)** — Ulua Beach or Black Rock, South Maui, Old Lahaina Luau
 - **[Day 4 — Thu 2/12: 'Iao Valley + Pa'ia](trip-plan/04-day4-thursday-feb12.md)** — Optional surf lesson, sacred valley, North Shore charm
 - **[Day 5 — Fri 2/13: Road to Hana](trip-plan/05-day5-friday-feb13.md)** — Waterfalls, black sand beach, lava tubes, banana bread
-- **[Day 6 — Sat 2/14: Haleakala + Whale Day](trip-plan/06-day6-saturday-feb14.md)** — 3 AM sunrise, 10,023 ft summit, marine festival
-- **[Day 7 — Sun 2/15: Kapalua + Submarine](trip-plan/07-day7-sunday-feb15.md)** — Best snorkeling (sea turtles), Atlantis dive, rest & pack
+- **[Day 6 — Sat 2/14: Snorkeling + Whale Day](trip-plan/06-day6-saturday-feb14.md)** — Morning snorkeling #3, World Whale Day Festival, Valentine's dinner
+- **[Day 7 — Sun 2/15: Rainy Day + Submarine](trip-plan/07-day7-sunday-feb15.md)** — Relaxed rainy morning, Atlantis dive, pack for departure
 - **[Day 8 — Mon 2/16: Departure](trip-plan/08-day8-monday-feb16.md)** — The Gazebo, final beach time, fly home
 - **[Reservations Checklist](trip-plan/09-reservations-checklist.md)** — Complete booking timeline with links
 

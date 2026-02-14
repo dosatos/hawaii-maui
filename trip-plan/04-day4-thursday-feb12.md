@@ -1,72 +1,101 @@
-# Day 4 — Thursday, February 12: 'Iao Valley + Pa'ia Town
+# Day 4 — Thursday, February 12: Snorkeling + 'Iao Valley + Pa'ia Town
 
-**Theme:** Optional surf lesson + Sacred Hawaiian valley (MUST VISIT) + North Shore charm
+**Theme:** Snorkeling session #1 + Sacred Hawaiian valley (MUST VISIT) + North Shore charm
 
 ---
 
 ## Schedule
 
-### Morning Options
+### Morning/Midday: Snorkeling Session #1
 
-**Option A: Surf Lesson (Reschedule from Day 3)**
-
-| Time | Activity | Details |
-|------|----------|---------|
-| 7:00 AM | Breakfast at condo | Light meal — don't eat too much before surfing |
-| 7:15 AM | Drive to surf lesson location | Ka'anapali or Lahaina area |
-| **7:30-9:30 AM** | **BEGINNER SURF LESSON** | See details below |
-| 10:00 AM | Return to condo briefly | Rinse off, change, grab lunch supplies |
-
-**Surf Lesson Details:**
-- **Duration:** 2 hours
-- **Cost:** ~$100-150 per person (group lesson) or ~$200-250 for private family lesson
-- **Total:** ~$300-450 for family of 3
-- **Where:** Schools operating at Ka'anapali/Lahaina:
-  - **Royal Hawaiian Surf Academy** (Ka'anapali)
-  - **Maui Surfer Girls** (girls-focused experience)
-  - **Goofy Foot Surf School** (Lahaina)
-- **What's included:** Board, rash guard, instruction
-- **Good for a 9-year-old?** Perfect age. Most kids stand up on first try.
-- **Conditions today:** Excellent! Light winds, small waves perfect for learning.
-- **Booking:** Call 1-2 weeks ahead or book online
-
-**Option B: Relaxed Morning**
+**Option A: Kapalua Bay** (15 min north) - ⭐ **HIGHLY RECOMMENDED**
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 8:00-10:00 AM | Sleep in, leisurely breakfast | Enjoy condo breakfast, relax by pool |
-| 10:00 AM | Depart for 'Iao Valley | 30 min drive |
+| 10:30 AM | Drive to Kapalua Bay | 15 min from Ka'anapali |
+| 10:45 AM | Arrive (parking easier midday) | ~25 public spaces |
+| 11:00 AM-1:00 PM | **Snorkel at Kapalua Bay** | THE BEST family snorkeling on Maui |
 
-**Recommendation:** If you're feeling energetic and the weather is good, do the surf lesson! If you're tired from yesterday's full day (snorkeling + luau), take it easy with Option B.
+**Kapalua Bay — Why it's THE BEST:**
+- **Protected crescent bay** — Rocky headlands on both sides block ocean swells, making it calm even when other beaches have waves
+- **Sea turtles almost guaranteed** — Usually spotted along the rocky left (south) side
+- **Sandy entry** — Easy for kids, no scary reef entry
+- **Clear water** — Excellent visibility, 5-15 feet deep
+- **Abundant marine life** — Parrotfish, surgeonfish, tangs, wrasses, butterflyfish, sometimes octopus
+- **Consistent conditions** — One of the most reliably calm snorkel spots on Maui
+
+**Snorkeling tips:**
+- Enter from the sandy beach in the center
+- Snorkel along the rocky left (south) side for turtles
+- Stay inside the bay — don't go around the points where currents get strong
+- **Parking:** ~25 public spaces. Easier to find a spot 10:30 AM-1 PM (between morning and afternoon crowds)
+- **Facilities:** Public restrooms and outdoor showers at the beach access
+- **No lifeguards** — watch your daughter closely
+- **Bring:** Rash guards (sun protection), reef-safe sunscreen, snorkel gear
+
+**Option B: Black Rock (Ka'anapali)** (5 min from condo)
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 11:00 AM | Walk/drive to Black Rock | Pu'u Keka'a at Sheraton side of Ka'anapali Beach |
+| 11:00 AM-1:00 PM | Snorkel at Black Rock | Rocky outcrop |
+
+- **Location:** Ka'anapali Beach, Sheraton Maui side
+- **Distance:** 5 min drive or 15 min walk from Eldorado
+- **What you'll see:** Tropical fish, sometimes turtles, decent coral
+- **Entry:** Easy sandy entry
+- **Facilities:** Beach showers, restrooms
+- **Why:** Super convenient, less driving
+
+**Option C: Honolua Bay** (30 min north, past Kapalua)
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 10:00 AM | Drive to Honolua Bay | 30 min from Ka'anapali |
+| 10:30 AM-12:30 PM | Snorkel at Honolua Bay | Marine reserve |
+
+- **Marine Life Conservation District** — Protected reef, excellent coral and fish
+- **What you'll see:** Turtles, tropical fish, healthy coral, sometimes dolphins offshore
+- **Entry:** Rocky/pebble beach entry (trickier than Kapalua)
+- **Parking:** Roadside parking can be tight
+- **Best for:** Experienced snorkelers
+- **Note:** More effort but worth it for pristine reef
+
+**Recommendation for TODAY:** **Kapalua Bay (Option A)** - Best balance of amazing marine life, easy access, and sea turtles!
 
 ---
 
-### Late Morning: Lunch Options
+### Early Afternoon: Lunch
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 11:00 AM | Lunch before 'Iao Valley | See options below |
+| 1:00 PM | Rinse off, pack up from beach | |
+| 1:15 PM | Lunch | See options below |
 
-**Option 1: The Fish Market Maui ⭐ (Friend's Recommendation)**
-- **Location:** 3600 Lower Honoapiilani Rd, Lahaina (10 min from Ka'anapali, 20 min from 'Iao Valley)
+**Option 1: Quick Lunch on the Way**
+- **Pack sandwiches from condo** — Eat in the car or at 'Iao Valley
+- **Saves time and money**
+
+**Option 2: The Fish Market Maui ⭐ (Friend's Recommendation)**
+- **Location:** 3600 Lower Honoapiilani Rd, Lahaina (on the way from Kapalua to 'Iao Valley)
 - **Vibe:** Casual, local favorite, fresh seafood market with prepared food
-- **Why:** Fresh-caught fish daily, poke bowls, fish tacos, plate lunches. Your friend recommended this!
+- **Why:** Fresh-caught fish daily, poke bowls, fish tacos, plate lunches
 - **For the kid:** Fish and chips, fish tacos, grilled fish plates
 - **Price:** $$ (~$45-55 for a family of 3)
-- **No reservation needed** — order at counter, casual seating
+- **Timing:** Adds 30-45 min to your schedule
 
-**Option 2: Pack Sandwiches from Condo**
-- **Why:** Save money and time
-- **When:** If you did the surf lesson, you might be running late — easier to grab sandwiches and eat on the way or at 'Iao Valley
+**Option 3: Grab Food Near 'Iao Valley**
+- **Sam Sato's** (Wailuku) — Local institution, saimin noodles, manju pastries
+- **Tasty Crust** (Wailuku) — Plate lunches, pancakes
 
 ---
 
-### Late Morning/Afternoon: 'Iao Valley State Park ⭐
+### Afternoon: 'Iao Valley State Park ⭐
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 11:30 AM | **Drive to 'Iao Valley State Park** | ~30 min from Ka'anapali via Highway 30 → Wailuku (OR 1:30 PM if you did surf lesson) |
-| 12:00-1:30 PM | **Explore 'Iao Valley** | See details below (OR 2:00-3:30 PM if you did surf lesson) |
+| 2:00 PM | **Drive to 'Iao Valley State Park** | ~30-40 min from Kapalua/Lahaina via Highway 30 → Wailuku |
+| 2:45-4:15 PM | **Explore 'Iao Valley** | See details below |
 
 ⭐ **Friend's "MUST VISIT" Recommendation!**
 
@@ -107,12 +136,14 @@ One of Maui's most sacred and historically significant locations. A lush, mystic
 
 ---
 
-### Late Afternoon: Pa'ia Town
+### Late Afternoon: Pa'ia Town (OPTIONAL)
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 3:00 PM | **Drive to Pa'ia** | ~40 min via Highway 36 through Kahului |
-| 3:45-5:30 PM | **Explore Pa'ia town** | Charming North Shore surf town |
+| 4:30 PM | **Drive to Pa'ia** (optional) | ~40 min via Highway 36 through Kahului |
+| 5:15-6:00 PM | **Quick Pa'ia visit** (optional) | Charming North Shore surf town |
+
+**Note:** After snorkeling + 'Iao Valley, you might be tired. Pa'ia is optional today. You can also skip it and head straight back to Ka'anapali for a relaxed evening before tomorrow's big Road to Hana day.
 
 **Pa'ia Town highlights:**
 - Small, walkable downtown with surf shops, boutiques, art galleries
@@ -157,41 +188,27 @@ One of Maui's most sacred and historically significant locations. A lush, mystic
 
 ## Practical Notes
 
-- **Surf lesson decision:** Make this call based on how you're feeling after yesterday's full day (snorkeling + luau). The forecast is excellent for surfing, but it's also okay to skip it and have a relaxed morning.
+- **Snorkeling timing:** Midday (10:30 AM-1:00 PM) is a good window — avoids early morning crowds but still gets good visibility
+- **Kapalua Bay parking:** Easier to find parking 10:30 AM-1 PM than early morning (when it fills by 8-9 AM)
+- **Sunscreen:** Reapply reef-safe sunscreen every 90 minutes while snorkeling
 - **'Iao Valley weather:** It's a rainforest valley — expect occasional rain. Bring light rain jacket and wear shoes with good traction (can be slippery when wet).
 - **'Iao Valley parking:** Small lot. If full, there's overflow parking at the nearby baseball field (short walk).
-- **Pa'ia parking:** Can be tight on the main street. There's a free public lot behind the shops. If full, there's more parking along Baldwin Avenue.
-- **Timing Pa'ia:** Going in the late afternoon is smart — morning Pa'ia is crowded with Road to Hana traffic. By 4-5 PM, it's mellowed out.
-- **Gas tip:** Fill up in Kahului on the way to Pa'ia if needed. Pa'ia has limited gas stations.
-- **Flexibility:** If you're tired after 'Iao Valley, consider skipping Pa'ia and heading back to the condo for a relaxed evening. You have a BIG day tomorrow (Road to Hana).
+- **Pa'ia:** Completely optional today. If you're tired, skip it and rest up for tomorrow's Road to Hana.
+- **Gas tip:** Fill up today — Road to Hana tomorrow requires a full tank
+- **Early to bed:** Road to Hana tomorrow is 12-14 hours. Get good sleep tonight!
 
 ---
 
 ## Day 4 Budget Estimate
 
-### Without Surf Lesson:
-
 | Item | Cost |
 |------|------|
 | Breakfast & snacks | $0 (condo supplies) |
-| The Fish Market lunch (or packed sandwiches) | $45-55 ($0 if packed) |
+| Snorkeling at Kapalua Bay | FREE (public beach) |
+| Lunch (packed or quick bite) | $0-55 |
 | 'Iao Valley entry | $25 ($10 vehicle + $15 for 3 people) |
-| Tobi's Poke | $15-25 |
-| Flatbread Company dinner | $40-60 |
-| Gas | $15-20 |
-| **Day total** | **$140-185** (or **$95-130** with packed lunch) |
+| Dinner (if going out, or $0 if condo) | $0-60 |
+| Gas | $20-25 (fill up for tomorrow!) |
+| **Day total** | **$45-165** |
 
-### With Surf Lesson:
-
-| Item | Cost |
-|------|------|
-| Breakfast & snacks | $0 (condo supplies) |
-| **Surf lesson (family of 3)** | **$300-450** |
-| The Fish Market lunch (or packed sandwiches) | $45-55 ($0 if packed) |
-| 'Iao Valley entry | $25 |
-| Tobi's Poke | $15-25 |
-| Flatbread Company dinner | $40-60 |
-| Gas | $15-20 |
-| **Day total** | **$440-635** (or **$395-580** with packed lunch) |
-
-**Note:** This is a more flexible day budget-wise. If you skip the surf lesson and pack lunch, it's one of your cheapest days!
+**Note:** This is one of your cheapest days! Free amazing snorkeling + low-cost activities. Save money for tomorrow's Road to Hana adventure.

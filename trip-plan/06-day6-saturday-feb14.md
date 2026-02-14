@@ -1,6 +1,6 @@
-# Day 6 — Saturday, February 14: Haleakala Sunrise + World Whale Day
+# Day 6 — Saturday, February 14: Snorkeling + World Whale Day Festival
 
-**Theme:** Sunrise at 10,000 feet, upcountry brunch, marine science festival
+**Theme:** Snorkeling session #3 (THE BEST!), marine science festival, Valentine's Day dinner
 
 **Special note:** This is also **Valentine's Day** — the Maui Ocean Center has special programming, and you'll end the day with a romantic oceanfront dinner.
 
@@ -8,97 +8,67 @@
 
 ## Schedule
 
-### Pre-Dawn: Haleakala Sunrise
+### Morning: Snorkeling Session #3 - THE BEST!
+
+**Choose one of these EXCELLENT snorkeling spots:**
+
+**Option A: Kapalua Bay** (15 min north) - ⭐ **IF YOU DIDN'T DO IT THURSDAY**
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 3:00 AM | **Wake-up call** | Brutal, but worth it. Coffee for the adults! |
-| 3:15 AM | Get dressed **WARM** | See packing list below — it's FREEZING at the summit |
-| 3:30 AM | Quick breakfast | Granola bars, bananas, coffee to-go |
-| 3:45 AM | **Drive to Haleakala** | ~2 hours from Ka'anapali to the summit |
+| 7:00 AM | Breakfast at condo | Light breakfast |
+| 7:30 AM | Drive to Kapalua Bay | 15 min from Ka'anapali |
+| 7:45 AM | **Arrive EARLY for parking** | CRITICAL - only ~25 spaces, fills by 9 AM |
+| 8:00-10:30 AM | **Snorkel at Kapalua Bay** | THE BEST family snorkeling on Maui |
 
-**Haleakala National Park:**
-- **Drive time:** Ka'anapali → Kahului → Highway 37 → Highway 377 → Highway 378 (Crater Road) → Summit. About 2 hours, 42 miles.
-- **Elevation gain:** Sea level to 10,023 feet
-- **Temperature at summit:** -1 to 4°C (sometimes lower with wind chill). Feels like winter.
-- **Sunrise time in mid-February:** ~6:50 AM
-- **Arrive by:** 6:00-6:15 AM to get parking and find a good viewing spot
+**Kapalua Bay highlights:**
+- **Sea turtles almost guaranteed** along rocky left side
+- Protected crescent bay, consistently calm
+- Sandy entry, 5-15 feet deep, excellent visibility
+- Abundant tropical fish
 
-**Sunrise reservation required:**
-- **Book at:** [recreation.gov](https://www.recreation.gov/ticket/facility/253731)
-- **Cost:** $1/vehicle for the reservation + $30 park entrance fee (good for 3 days)
-- **When to book:** Reservations open **60 days in advance at 7:00 AM HST**. For Feb 14, that's **December 16, 2025 at 7:00 AM Hawaii time**.
-- **They sell out in minutes** — be ready exactly at 7:00 AM HST with your recreation.gov account set up
-- **Time window:** Your reservation is for a 2-hour window starting at the time you select (e.g., 5:00-7:00 AM)
+**Option B: Honolua Bay** (30 min north) - ⭐ **FOR VARIETY IF YOU DID KAPALUA THURSDAY**
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 7:00 AM | Breakfast at condo | Light breakfast |
+| 7:30 AM | Drive to Honolua Bay | 30 min from Ka'anapali |
+| 8:00-10:30 AM | **Snorkel at Honolua Bay** | Marine Life Conservation District |
+
+**Honolua Bay highlights:**
+- **Protected marine reserve** - pristine coral and abundant fish
+- Sea turtles, tropical fish, healthy reef
+- Rocky/pebble entry (bring reef shoes)
+- Often sees dolphins offshore
+- **Best for:** More experienced snorkelers
+
+**Option C: Napili Bay** (10 min north) - **EASIEST & STILL EXCELLENT**
+
+| Time | Activity | Details |
+|------|----------|---------|
+| 7:30 AM | Drive to Napili Bay | 10 min from Ka'anapali |
+| 8:00-10:30 AM | **Snorkel at Napili Bay** | Quiet crescent bay |
+
+**Napili Bay highlights:**
+- Calmer and less crowded than Kapalua
+- Sea turtles common
+- Sandy beach, easy entry
+- Good for families
+
+**Recommendation:** If you did Kapalua Thursday, try Honolua Bay today for variety. If you skipped it Thursday, DO KAPALUA TODAY!
 
 ---
 
-### Summit: Watch Sunrise Above the Clouds
+### Late Morning/Afternoon: World Whale Day Community Day
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 6:00 AM | Arrive at summit | Park at the Haleakala Visitor Center parking area |
-| 6:15 AM | Walk to viewing area | Short walk from parking. Bundle up! |
-| 6:50 AM | **SUNRISE** | Watch the sun break over the crater rim. Absolutely spectacular. |
-| 7:15 AM | **Pa Ka'oao Trail hike** | 0.4-mile paved trail to higher viewpoint (10,023 ft summit) |
-| 8:00 AM | Begin descent | |
-
-**What to expect:**
-- The sunrise is often above a sea of clouds — you're literally above the cloud layer
-- The volcanic crater (actually an erosion valley) is massive and otherworldly
-- Colors shift from deep purple/blue to orange/gold as the sun rises
-- Silversword plants (rare, endangered) grow only here
-- The air is thin — move slowly, especially with your daughter
-- It's COLD and WINDY — layer up
-
-**Pro tips:**
-- Bring a blanket to sit on and wrap around you
-- Hot cocoa in a thermos = hero parent move
-- Arrive 30-45 min before sunrise to find parking and a good spot
-- Watch for **Nene birds** (Hawaiian goose, state bird) — they're often near the visitor center
-
----
-
-### Mid-Morning: Upcountry Maui Brunch
-
-| Time | Activity | Details |
-|------|----------|---------|
-| 9:00 AM | Drive partway down to Kula | ~20-30 min descent |
-| 9:30 AM | **Brunch** | See options below |
-| 10:30 AM | Explore upcountry (optional) | |
-| 11:30 AM | Drive to Ma'alaea | ~40 min |
-
-**Brunch options in Kula:**
-
-**Grandma's Coffee House** (Keokea, 9232 Kula Highway)
-- Classic upcountry institution since 1918
-- Homemade baked goods, coffee from their own farm
-- Breakfast burritos, loco moco, Portuguese sausage
-- Sit on the lanai with views of the slopes
-- $$ (~$10-15/person)
-
-**Kula Lodge** (15200 Haleakala Highway)
-- Sit-down restaurant with stunning views down the mountain to the coast
-- Breakfast and brunch menu — macadamia nut pancakes, eggs Benedict, omelets
-- More upscale than Grandma's
-- $$-$$$ (~$15-25/person)
-- Reservations recommended for weekends
-
-**Optional upcountry stops (if you have time):**
-- **Surfing Goat Dairy** (goat cheese farm with tours, ~$15-20/person, fun for kids)
-- **Ali'i Kula Lavender Farm** (lavender gardens, gift shop, views)
-- Drive through cute upcountry towns: Makawao, Kula
-
----
-
-### Afternoon: World Whale Day Community Day
-
-| Time | Activity | Details |
-|------|----------|---------|
-| 12:30 PM | Arrive at **Ma'alaea Harbor Shops** | Park in the harbor lot (free) |
-| 12:30-3:00 PM | **World Whale Day Community Day Festival** | See details below |
-| 3:00 PM | **Maui Ocean Center** next door | See details below |
-| 5:00 PM | Drive back to Ka'anapali | ~30 min |
+| 10:30 AM | Leave beach, rinse off | |
+| 11:00 AM | Drive to Ma'alaea Harbor | ~35-45 min from North Shore beaches |
+| 11:45 AM | Arrive at **Ma'alaea Harbor Shops** | Park in the harbor lot (free) |
+| 12:00-3:00 PM | **World Whale Day Community Day Festival** | See details below |
+| 3:00-5:00 PM | **Maui Ocean Center** next door | See details below |
+| 5:15 PM | Drive back to Ka'anapali | ~30 min |
 
 ---
 
@@ -178,33 +148,33 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 
 ## What to Pack for Day 6
 
-### Haleakala Summit (3-8 AM)
-**Dress in WARM LAYERS — it's -1 to 4°C:**
-- Fleece or puffy jacket
-- Long pants (jeans or hiking pants)
-- Closed-toe shoes
-- Beanie / winter hat
-- Gloves
-- Blanket or sleeping bag to wrap around you
-- Headlamp or flashlight (it's dark!)
-- Thermos with hot coffee/cocoa
+### For snorkeling
+- Snorkel gear (mask, snorkel, fins)
+- Rash guards / UV shirts
+- Reef shoes (especially if doing Honolua Bay)
+- Reef-safe sunscreen
+- Beach towels
+- Underwater camera/phone case
 
-### For later in the day
-- Change into shorts/t-shirts (it'll be 26°C at sea level)
+### For World Whale Day & Maui Ocean Center
+- Comfortable walking clothes
 - Sunscreen
-- Sunglasses
+- Hat and sunglasses
 - Camera
 - Reusable water bottles
+- Light sweater (air conditioning inside Maui Ocean Center)
 
 ---
 
 ## Practical Notes
 
-- **This is your longest day:** You'll be awake 20+ hours (3 AM - 11 PM). Pace yourselves. Naps in the afternoon are acceptable.
-- **Altitude sickness:** The summit is 10,023 feet. Some people feel lightheaded or nauseous. Stay hydrated, move slowly, and descend if anyone feels unwell.
-- **Drive carefully:** The road to Haleakala is steep and winding. Use lower gears on the descent to save your brakes. Watch for cyclists (downhill bike tours are popular).
-- **Gas:** Fill up the day before. There are no gas stations on the way up.
-- **No food at the summit:** The visitor center doesn't have a café. Bring snacks.
+- **Snorkeling timing:** Early morning (8:00-10:30 AM) is best — calm water, good visibility, before wind picks up
+- **Parking:** If doing Kapalua, arrive by 7:45 AM for parking. Honolua and Napili are easier.
+- **Get there before rain:** Sunday is forecast to be rainy, so this is your last good snorkeling opportunity!
+- **Sunscreen:** Reapply reef-safe sunscreen frequently
+- **Hydration:** Bring plenty of water for the beach and festival
+- **Festival:** It's free, casual, and family-friendly. Stay as long as you want.
+- **Maui Ocean Center:** Budget 1.5-2 hours to see everything
 
 ---
 
@@ -213,10 +183,12 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 | Item | Cost |
 |------|------|
 | Breakfast & snacks | $0 (condo supplies) |
-| Haleakala entrance fee + reservation | $31 |
-| Gas (full tank) | $60-80 |
-| Kula Lodge or Grandma's brunch | $45-75 |
+| Snorkeling (Kapalua/Honolua/Napili) | FREE (public beach) |
+| Lunch at festival or before | $20-40 (food trucks/casual) |
 | World Whale Day event | FREE |
-| Maui Ocean Center | ~$110 |
-| Dinner (Duke's or Star Noodle) | $70-100 |
-| **Day total** | **$316-396** |
+| Maui Ocean Center | ~$110 (2 adults + 1 child) |
+| Dinner (Duke's, Star Noodle, or Valentine's special) | $70-120 |
+| Gas | $15-20 |
+| **Day total** | **$215-290** |
+
+**Note:** Much cheaper than the original Haleakala sunrise plan (saved ~$100+), plus you get amazing snorkeling!

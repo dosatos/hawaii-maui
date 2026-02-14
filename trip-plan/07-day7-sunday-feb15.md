@@ -1,41 +1,44 @@
-# Day 7 — Sunday, February 15: Kapalua Bay + Atlantis Submarine + Rest
+# Day 7 — Sunday, February 15: Rainy Day + Atlantis Submarine + Pack
 
-**Theme:** Best snorkeling of the trip (GUARANTEED sea turtles), underwater submarine adventure (SPLURGE #1), rest and pack before departure
+**Theme:** Relaxed rainy morning, underwater submarine adventure (SPLURGE #1 - perfect for rain!), rest and pack before Monday departure
+
+**Weather:** Rain forecast today, so submarine is perfect timing!
 
 ---
 
 ## Schedule
 
-### Morning: Kapalua Bay Snorkeling
+### Morning: Relaxed Rainy Day
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 7:00 AM | Breakfast at the condo | Light breakfast — eggs, toast, fruit |
-| 7:30 AM | **Drive to Kapalua Bay** | 15 min north from Ka'anapali Eldorado |
-| 7:45 AM | Arrive (EARLY for parking) | Small lot fills by 9 AM |
-| 8:00-10:30 AM | **Snorkel at Kapalua Bay** | Best family snorkeling on Maui |
+| 8:00 AM | Sleep in! | You've earned it after a full week |
+| 8:30 AM | Leisurely breakfast at condo | Eggs, pancakes, coffee, take your time |
+| 9:00-11:00 AM | **Flexible morning** | See options below |
 
-**Kapalua Bay — Why it's special:**
-- **Protected crescent bay** — Rocky headlands on both sides block ocean swells, making it calm even when other beaches have waves
-- **Consistent conditions** — One of the most reliably calm snorkel spots
-- **Sea turtles almost guaranteed** — Usually spotted along the rocky edges
-- **Sandy entry** — Easy for kids
-- **Clear water** — Excellent visibility
-- **Abundant marine life** — Parrotfish, surgeonfish, tangs, wrasses, butterflyfish, sometimes octopus
-- **Shallow reef** — 5-15 feet deep, perfect for a 9-year-old
+**Rainy Morning Options:**
 
-**Snorkeling tips:**
-- **Best time:** 7:30-10:00 AM — calmest water, best visibility before wind picks up
-- Enter from the sandy beach in the center
-- Snorkel along the rocky left (south) side for turtles
-- Stay inside the bay — don't go around the points where currents get strong
-- **Parking:** ~25 public spaces. Arrive by 8 AM or you won't get a spot. No street parking.
-- **Facilities:** Public restrooms and outdoor showers at the beach access
+**Option A: Pool/Indoor Activities at Eldorado**
+- Hang out in the condo
+- Indoor pool if it's just light rain
+- Watch the rain from your lanai
+- Play cards/games with your daughter
 
-**Safety:**
-- No lifeguards
-- Watch your daughter closely — the rocks can be sharp
-- Rash guards recommended (sun protection + minor scrape protection)
+**Option B: Light Beach Walk (If rain is light/intermittent)**
+- Walk Ka'anapali Beach in the rain (it can be beautiful!)
+- Splash in puddles
+- Collect shells
+- Quick dip if you don't mind rain
+
+**Option C: Last-Minute Shopping**
+- Whaler's Village (covered shopping, 5 min walk)
+- Pick up last-minute souvenirs
+- Grab coffee at Island Vintage Coffee
+
+**Option D: Try Snorkeling IF Weather Permits**
+- Check weather when you wake up
+- If rain clears or is very light, you could still try Kapalua Bay (15 min north)
+- But submarine is the main event today anyway — don't stress about snorkeling in the rain
 
 ---
 
@@ -43,8 +46,8 @@
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 10:30 AM | Leave Kapalua | Rinse off, dry off, pack up |
-| 10:45 AM | **Drive to Lahaina Harbor** | ~15 min via Lower Honoapiilani Rd |
+| 11:00 AM | Leave condo/Whaler's Village | Grab any last items |
+| 11:15 AM | **Drive to Lahaina Harbor** | ~10 min from Ka'anapali |
 | 11:30 AM | Arrive at Atlantis Submarine check-in | Check in 30 min before departure |
 
 ---
@@ -84,10 +87,12 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 - **Book 1-2 weeks ahead** for February
 
 **Tips:**
+- **PERFECT FOR RAINY DAY** — You'll be 100 feet underwater, rain doesn't matter!
 - Midday time slots are fine for visibility (mornings are slightly better, but 12 PM is still excellent)
 - Wear comfortable clothes — no swimsuit needed, you don't get wet
 - Bring a camera — you can photograph through the portholes
 - The ladder in/out is the trickiest part for kids. Your 9-year-old should be fine, but practice climbing a ladder if she's nervous.
+- Bring light rain jackets for walking from car to harbor in the rain
 
 ---
 
@@ -101,9 +106,10 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 | 3:00-6:00 PM | **Rest and pack** | Final swim, pack suitcases, organize souvenirs |
 
 **Quick lunch options in Lahaina (before or after submarine):**
-- **Ululani's Hawaiian Shave Ice** (Lahaina location) — Light snack
-- **Grab food from a food truck** along Front Street
-- **Drive back to Eldorado and eat condo food** — Use up leftover groceries
+- **Ululani's Hawaiian Shave Ice** (Lahaina location) — Light snack (covered area)
+- **Grab food from a food truck** along Front Street (many have covered seating)
+- **Cool Cat Café** (658 Front St) — Indoor seating, burgers, sandwiches
+- **Drive back to Eldorado and eat condo food** — Use up leftover groceries, stay dry
 
 **Important afternoon tasks:**
 - **Pack for tomorrow's departure** — Lay out clothes, organize souvenirs, check for lost items around the condo
@@ -143,12 +149,14 @@ This is a **real submarine** — not a glass-bottom boat, not a semi-sub. A genu
 
 ## Practical Notes
 
-- **Perfect timing:** Kapalua snorkeling ends 10:30 AM → 15 min drive to Lahaina → arrive 11:30 AM for 12:00 PM submarine departure. The timing works perfectly!
-- **Kapalua parking:** Arrive by 7:45 AM for parking (only ~25 spaces, fills by 9 AM). This is CRITICAL.
-- **Pacing:** This is your last full day. You've been go-go-go all week. The afternoon is intentionally light — rest, pack, enjoy the resort.
+- **Rainy day = PERFECT for submarine:** You'll be underwater where weather doesn't matter!
+- **Already did 3 snorkeling sessions:** Thursday, Friday, Saturday — so don't stress about missing snorkeling today
+- **Relaxed morning:** Sleep in, take it easy, no need to rush
+- **Pacing:** This is your last full day. You've been go-go-go all week. Enjoy a relaxed pace.
 - **Packing:** Use the afternoon to pack for tomorrow's departure. Lay out clothes, check for lost items around the condo, organize souvenirs.
-- **Gas:** Fill up today so you're not rushed tomorrow morning before your flight.
-- **Skipping the parade:** The World Whale Day Parade (typically 11 AM-1 PM in South Kihei) conflicts with the submarine timing. You'd be rushing and stressed. Kapalua snorkeling + submarine is a better use of your last full day.
+- **Gas:** Fill up Saturday or today so you're not rushed tomorrow morning before your flight.
+- **Indoor activities:** If rain is heavy, stay at condo or Whaler's Village until submarine time
+- **Rain gear:** Bring light rain jackets and umbrella for walking to/from car
 - **Early to bed:** You have check-out and airport tomorrow morning. Get to bed early tonight.
 
 ---
