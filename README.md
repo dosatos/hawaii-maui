@@ -30,19 +30,21 @@
 | **3** | Wed 2/11 | **Snorkeling + Luau** ⭐ | Ulua Beach or Black Rock, South Maui, Old Lahaina Luau |
 | **4** | Thu 2/12 | 'Iao Valley ⭐ + Pa'ia | Optional surf lesson, sacred valley, North Shore charm |
 | **5** | Fri 2/13 | Road to Hana | 620 curves, waterfalls, black sand beach, lava tube caves |
-| **6** | Sat 2/14 | Snorkeling + Whale Day | Morning snorkeling session #3, marine science festival, Valentine's dinner |
-| **7** | Sun 2/15 | Rainy Day + Submarine ⭐ | Relaxed rainy morning, Atlantis dive to 100 ft, pack for departure |
+| **6** | Sat 2/14 | Flexible Day + Whale Day + Valentine's | Relaxed morning, World Whale Day Festival, Valentine's dinner |
+| **7** | Sun 2/15 | Whale Watching ⭐ + Pack | Relaxed morning, 1-3 PM whale watching from Ka'anapali, pack for departure |
 | **8** | Mon 2/16 | Departure | The Gazebo breakfast, final beach time, fly home |
 
 ---
 
-## 🎯 Two Premium Splurge Experiences
+## 🎯 Premium Experiences
 
-### 1. Atlantis Submarine (Day 7) — ~$438 total
-Real 48-passenger submarine diving to 100-130 feet off Lahaina. See coral reefs, tropical fish, sea turtles. Departure: **Sunday, Feb 15 at 12:00 PM** from Lahaina Harbor. **Book 1-2 weeks ahead.**
+### 1. Old Lahaina Luau (Day 3) — ~$620 total ✅ COMPLETED
+Maui's #1 authentic luau. Oceanfront setting, traditional Hawaiian feast (kalua pig, poi, haupia), hula performance, lei greeting. **Completed Wednesday, Feb 11.**
 
-### 2. Old Lahaina Luau (Day 3) — ~$620 total
-Maui's #1 authentic luau. Oceanfront setting, traditional Hawaiian feast (kalua pig, poi, haupia), hula performance, lei greeting. **Wednesday, Feb 11 at 5:15 PM.** **Book 2-3 months in advance** — sells out early!
+### 2. Whale Watching Tour (Day 7) — ~$135-180 total
+Peak whale season humpback whale watching tour from Ka'anapali. 2-hour tour with naturalist guide. **Sunday, Feb 15, 1:00-3:00 PM.** Already booked!
+
+**Note:** Atlantis Submarine was cancelled due to technical issues. Surfing was cancelled due to no available slots.
 
 ---
 
@@ -90,12 +92,13 @@ Peak humpback whale season! Festival events during your trip:
 
 ## 📅 Critical Advance Reservations
 
-| What | Deadline | Where | Cost |
-|------|----------|-------|------|
-| **Old Lahaina Luau (Wed 2/11)** | 2-3 months ahead | [oldlahainaluau.com](https://oldlahainaluau.com/) | ~$230/adult, ~$160/child |
-| **Atlantis Submarine (Sun 2/15 @ 12 PM)** | 1-2 weeks ahead | [atlantisadventures.com](https://www.atlantisadventures.com/maui) | ~$179/adult, $80/child |
-| **Wai'anapanapa State Park (Fri 2/13)** | 2+ weeks ahead | [Hawaii DLNR](https://www.gostateparks.hawaii.gov/) | ~$10/vehicle |
-| **Car rental** | ASAP (Feb is peak season) | Costco Travel, AutoSlash, Kayak | $80-130/day |
+| What | Status | Notes |
+|------|--------|-------|
+| **Old Lahaina Luau (Wed 2/11)** | ✅ Completed | Attended Wednesday evening |
+| **Atlantis Submarine** | ❌ Cancelled | Technical issues |
+| **Whale Watching (Sun 2/15 @ 1-3 PM)** | ✅ Booked | From Ka'anapali |
+| **Wai'anapanapa State Park** | ✅ Completed (partial) | Did waterfalls on Road to Hana Friday |
+| **Car rental** | ✅ Booked | Returning Monday |
 
 ---
 
@@ -123,8 +126,8 @@ Roadside viewpoint on Road to Hana. Quick photo stop.
 - **[Day 3 — Wed 2/11: Snorkeling + Luau](trip-plan/03-day3-wednesday-feb11.md)** — Ulua Beach or Black Rock, South Maui, Old Lahaina Luau
 - **[Day 4 — Thu 2/12: 'Iao Valley + Pa'ia](trip-plan/04-day4-thursday-feb12.md)** — Optional surf lesson, sacred valley, North Shore charm
 - **[Day 5 — Fri 2/13: Road to Hana](trip-plan/05-day5-friday-feb13.md)** — Waterfalls, black sand beach, lava tubes, banana bread
-- **[Day 6 — Sat 2/14: Snorkeling + Whale Day](trip-plan/06-day6-saturday-feb14.md)** — Morning snorkeling #3, World Whale Day Festival, Valentine's dinner
-- **[Day 7 — Sun 2/15: Rainy Day + Submarine](trip-plan/07-day7-sunday-feb15.md)** — Relaxed rainy morning, Atlantis dive, pack for departure
+- **[Day 6 — Sat 2/14: Flexible Day + Valentine's](trip-plan/06-day6-saturday-feb14.md)** — Relaxed morning, World Whale Day Festival, Valentine's dinner
+- **[Day 7 — Sun 2/15: Whale Watching + Pack](trip-plan/07-day7-sunday-feb15.md)** — Relaxed morning, 1-3 PM whale watching, pack for departure
 - **[Day 8 — Mon 2/16: Departure](trip-plan/08-day8-monday-feb16.md)** — The Gazebo, final beach time, fly home
 - **[Reservations Checklist](trip-plan/09-reservations-checklist.md)** — Complete booking timeline with links
 

@@ -37,34 +37,13 @@ These require advance booking and have limited availability.
 
 ---
 
-### 2. Atlantis Submarine ⭐ MODERATE PRIORITY
+### 2. ❌ Atlantis Submarine - CANCELLED
 
-**What:** Real submarine dive to 100-130 feet (Day 7: Sunday, Feb 15) — SPLURGE #1
+**Status:** Cancelled due to technical issues
 
-**When to book:** 1-2 weeks in advance
-- Can book sooner, but availability is usually decent
+**Original plan:** Day 7 (Sunday, Feb 15) at 12:00 PM from Lahaina Harbor - Cost would have been ~$438
 
-**Where:** [atlantisadventures.com/maui](https://www.atlantisadventures.com/maui)
-
-**Cost:** $179/adult, $80/child (12 & under)
-- **Total for family of 3: ~$438**
-
-**Requirements:**
-- Minimum height: 36 inches (your 9-year-old is fine)
-- Must be able to climb a vertical 10-step ladder independently
-
-**What to choose:**
-- **Date:** Sunday, February 15, 2026
-- **Departure location:** Lahaina Harbor
-- **Time:** **12:00 PM departure** (midday slots also have excellent visibility)
-- **Operating days:** Confirm they're running on Feb 15 (typically 4-5 days/week)
-
-**Tips:**
-- Check their operating schedule first (they may not run every day)
-- Confirm Lahaina Harbor operations (submarine resumed there in Dec 2025)
-- Book online for small discount vs. booking at the harbor
-- Arrive 30 minutes before your departure time (11:30 AM for 12:00 PM departure)
-- **Perfect timing:** You'll finish Kapalua snorkeling at 10:30 AM, then drive 15 min to Lahaina, arriving at 11:30 AM
+**Replacement:** Whale watching tour booked for Sunday 1:00-3:00 PM from Ka'anapali (~$135-180)
 
 ---
 
@@ -170,12 +149,13 @@ These are walk-in / first-come, first-served:
 
 | When | What to Book |
 |------|-------------|
-| **NOW** | Car rental (monitor for price drops) |
-| **Mid-November 2025** | Old Lahaina Luau (Feb 11 - WEDNESDAY) |
-| **Late January 2026** | Wai'anapanapa State Park (Feb 13) |
-| **Late January 2026** | Atlantis Submarine (Feb 15 - SUNDAY 12:00 PM) |
-| **Early February 2026** | Valentine's dinner (Feb 14) |
-| **1 week before trip** | Other restaurant reservations via OpenTable |
+| **Status** | **Item** |
+| **✅ Completed** | Old Lahaina Luau (Feb 11 - WEDNESDAY) |
+| **✅ Completed** | Partial Road to Hana with waterfalls (Feb 13) |
+| **❌ Cancelled** | Atlantis Submarine (technical issues) |
+| **✅ Booked** | Whale watching tour (Feb 15 - SUNDAY 1-3 PM from Ka'anapali) |
+| **✅ Completed** | Car rental |
+| **Ongoing** | Restaurant reservations as needed |
 
 ---
 
@@ -183,16 +163,23 @@ These are walk-in / first-come, first-served:
 
 Print this and check off as you book:
 
-- [ ] **Car rental booked** (Kahului Airport, Feb 9-16)
-- [ ] **Old Lahaina Luau booked** (Feb 11 WEDNESDAY, evening 5:15 PM arrival)
-- [ ] **Atlantis Submarine booked** (Feb 15 SUNDAY, 12:00 PM departure from Lahaina Harbor)
-- [ ] **Wai'anapanapa State Park reservation** (Feb 13, late morning)
-- [ ] **Valentine's dinner reservation** (Feb 14, Duke's or Star Noodle)
-- [ ] **Hula Grill reservation** (Feb 10, dinner via OpenTable)
-- [ ] **Leilani's on the Beach reservation** (Feb 9, dinner via OpenTable)
-- [ ] **Flights confirmed** (arrive Feb 9, depart Feb 16)
-- [ ] **Ka'anapali Eldorado confirmation** (check-in Feb 9, check-out Feb 16)
-- [ ] **Travel insurance** (optional but recommended)
+- [x] **Car rental booked** (Kahului Airport, Feb 9-16)
+- [x] **Old Lahaina Luau attended** (Feb 11 WEDNESDAY)
+- [x] **Atlantis Submarine** - CANCELLED (technical issues)
+- [x] **Whale watching tour booked** (Feb 15 SUNDAY, 1-3 PM from Ka'anapali)
+- [x] **Partial Road to Hana completed** (Feb 13 - waterfalls visited)
+- [ ] **Valentine's dinner reservation** (Feb 14 TODAY - if not already booked)
+- [x] **Flights confirmed** (arrive Feb 9, depart Feb 16)
+- [x] **Ka'anapali Eldorado** (check-in Feb 9, check-out Feb 16)
+
+## Trip Summary:
+**Completed:**
+- Thursday: Kapalua Bay snorkeling + started 'Iao Valley
+- Friday: 'Iao Valley + Partial Road to Hana (waterfalls) + Black Rock snorkeling
+- Old Lahaina Luau (Wednesday)
+
+**Today (Saturday):** Flexible morning + World Whale Day Festival + Valentine's dinner
+**Tomorrow (Sunday):** Whale watching 1-3 PM + pack for Monday departure
 
 ---
 

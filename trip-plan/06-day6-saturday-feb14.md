@@ -1,61 +1,49 @@
-# Day 6 — Saturday, February 14: Snorkeling + World Whale Day Festival
+# Day 6 — Saturday, February 14: Flexible Day + World Whale Day + Valentine's Dinner
 
-**Theme:** Snorkeling session #3 (THE BEST!), marine science festival, Valentine's Day dinner
+**Theme:** Relaxed morning, World Whale Day Festival, Valentine's Day dinner
 
-**Special note:** This is also **Valentine's Day** — the Maui Ocean Center has special programming, and you'll end the day with a romantic oceanfront dinner.
+**Special note:** This is **Valentine's Day** — enjoy a leisurely day after your busy week!
+
+**What you've already done this trip:**
+- ✅ Thursday: Kapalua Bay snorkeling + 'Iao Valley (moved from Friday)
+- ✅ Friday: Actual 'Iao Valley visit + Partial Road to Hana (waterfalls) + Black Rock evening snorkeling
+- ❌ Submarine: Cancelled due to technical issues
+- ❌ Surfing: Cancelled due to no available slots
 
 ---
 
 ## Schedule
 
-### Morning: Snorkeling Session #3 - THE BEST!
+### Morning: Flexible Options
 
-**Choose one of these EXCELLENT snorkeling spots:**
+**You've already done great snorkeling this trip (Kapalua Thursday + Black Rock Friday evening), so today is flexible:**
 
-**Option A: Kapalua Bay** (15 min north) - ⭐ **IF YOU DIDN'T DO IT THURSDAY**
-
-| Time | Activity | Details |
-|------|----------|---------|
-| 7:00 AM | Breakfast at condo | Light breakfast |
-| 7:30 AM | Drive to Kapalua Bay | 15 min from Ka'anapali |
-| 7:45 AM | **Arrive EARLY for parking** | CRITICAL - only ~25 spaces, fills by 9 AM |
-| 8:00-10:30 AM | **Snorkel at Kapalua Bay** | THE BEST family snorkeling on Maui |
-
-**Kapalua Bay highlights:**
-- **Sea turtles almost guaranteed** along rocky left side
-- Protected crescent bay, consistently calm
-- Sandy entry, 5-15 feet deep, excellent visibility
-- Abundant tropical fish
-
-**Option B: Honolua Bay** (30 min north) - ⭐ **FOR VARIETY IF YOU DID KAPALUA THURSDAY**
+**Option A: Try Another Snorkeling Spot (If you want more!)**
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 7:00 AM | Breakfast at condo | Light breakfast |
-| 7:30 AM | Drive to Honolua Bay | 30 min from Ka'anapali |
-| 8:00-10:30 AM | **Snorkel at Honolua Bay** | Marine Life Conservation District |
+| 8:00 AM | Breakfast at condo | Light breakfast |
+| 8:30 AM | Drive to snorkel spot | See options below |
+| 9:00-11:00 AM | Snorkel | |
 
-**Honolua Bay highlights:**
-- **Protected marine reserve** - pristine coral and abundant fish
-- Sea turtles, tropical fish, healthy reef
-- Rocky/pebble entry (bring reef shoes)
-- Often sees dolphins offshore
-- **Best for:** More experienced snorkelers
+**Snorkeling options:**
+- **Honolua Bay** (30 min north) - Marine reserve, pristine coral, turtles
+- **Napili Bay** (10 min north) - Calm, quiet, less crowded than Kapalua
+- **Ulua Beach** (50 min south in Wailea) - Excellent reef, turtles, octopus
 
-**Option C: Napili Bay** (10 min north) - **EASIEST & STILL EXCELLENT**
+**Option B: Relaxed Beach Morning**
 
 | Time | Activity | Details |
 |------|----------|---------|
-| 7:30 AM | Drive to Napili Bay | 10 min from Ka'anapali |
-| 8:00-10:30 AM | **Snorkel at Napili Bay** | Quiet crescent bay |
+| 8:00-11:00 AM | Leisurely morning | Pool at Eldorado, Ka'anapali Beach walk, relax |
 
-**Napili Bay highlights:**
-- Calmer and less crowded than Kapalua
-- Sea turtles common
-- Sandy beach, easy entry
-- Good for families
+**Option C: Last-Minute Shopping**
 
-**Recommendation:** If you did Kapalua Thursday, try Honolua Bay today for variety. If you skipped it Thursday, DO KAPALUA TODAY!
+| Time | Activity | Details |
+|------|----------|---------|
+| 9:00-11:00 AM | Shopping | Whaler's Village, souvenirs, coffee |
+
+**Recommendation:** After your busy week (Kapalua, Road to Hana, 'Iao Valley, Black Rock), a relaxed morning is well-deserved!
 
 ---
 
@@ -168,13 +156,12 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 
 ## Practical Notes
 
-- **Snorkeling timing:** Early morning (8:00-10:30 AM) is best — calm water, good visibility, before wind picks up
-- **Parking:** If doing Kapalua, arrive by 7:45 AM for parking. Honolua and Napili are easier.
-- **Get there before rain:** Sunday is forecast to be rainy, so this is your last good snorkeling opportunity!
-- **Sunscreen:** Reapply reef-safe sunscreen frequently
-- **Hydration:** Bring plenty of water for the beach and festival
+- **Relaxed pace:** You've had a busy week - today is flexible and low-key
+- **Valentine's Day:** Book dinner reservation if you haven't already
 - **Festival:** It's free, casual, and family-friendly. Stay as long as you want.
 - **Maui Ocean Center:** Budget 1.5-2 hours to see everything
+- **Tomorrow:** Whale watching at 1-3 PM from Ka'anapali, then packing for Monday departure
+- **Early dinner:** Consider eating early (5:30-6 PM) so you can rest up for tomorrow
 
 ---
 
@@ -183,12 +170,10 @@ After a 16-hour day starting at 3 AM, you might prefer a low-key evening. Pick u
 | Item | Cost |
 |------|------|
 | Breakfast & snacks | $0 (condo supplies) |
-| Snorkeling (Kapalua/Honolua/Napili) | FREE (public beach) |
+| Morning activity (snorkeling/beach/shopping) | $0-50 |
 | Lunch at festival or before | $20-40 (food trucks/casual) |
 | World Whale Day event | FREE |
 | Maui Ocean Center | ~$110 (2 adults + 1 child) |
-| Dinner (Duke's, Star Noodle, or Valentine's special) | $70-120 |
+| Valentine's Day Dinner | $70-150 (depends on restaurant choice) |
 | Gas | $15-20 |
-| **Day total** | **$215-290** |
-
-**Note:** Much cheaper than the original Haleakala sunrise plan (saved ~$100+), plus you get amazing snorkeling!
+| **Day total** | **$215-370** |
